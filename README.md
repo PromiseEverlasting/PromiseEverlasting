@@ -58,7 +58,7 @@ His comments found their way to the sacred garden
 ︵‿︵‿୨♡୧‿︵‿︵
               </p>
                 <p align="center"> 
-                <a href="https://rentry.co/SerenadeLovee" target="[M]">𝗠𝗘</a>
+                <a href="https://rentry.co/SerenadeLove" target="[M]">𝗠𝗘</a>
                 </p>
                   <p align="center"> 
                 𝗶 𝗹𝗼𝘃𝗲 𝗺𝗮𝗸𝗶𝗻𝗴 𝗳𝗿𝗶𝗲𝗻𝗱𝘀 𝗮𝗻𝗱 𝗜 𝗳𝗼𝗹𝗹𝗼𝘄 𝗯𝗮𝗰𝗸
