@@ -6,7 +6,7 @@
 ..••°°°°••..
 </p>
 <p align="center">
-  <img width="480" src="https://pbs.twimg.com/media/F-fYyv4agAAjoS9?format=jpg&name=small">
+  <img width="460" src="https://pbs.twimg.com/media/F-fYyv4agAAjoS9?format=jpg&name=small">
 </p>
 <p align="center">
 ︶꒦꒷♡꒷꒦︶
@@ -85,12 +85,12 @@ if im alone you dont have ask me for cuddles just go right ahead
                 <p align="center"> 
                 <a href="https://rentry.co/SerenadeLove" target="[M]">𝗠𝗘</a>
                 </p>
-             
+              <p align="center"> 
+                 <img width="380" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/8b207e99-af7f-47b8-b4e1-1d5380430e98" alt = [pony-town-♪ ⋆ - _ 😽 My bride Arthia_3-sit-blinking-name-padded-4x]>
+              </p>
+
  <p align="center"> 
  ପ(๑•ᴗ•๑)ଓ ♡
-</p>
-<p align="center"> 
-  <img width="200" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/5dfa6fcf-d9c3-4723-a355-178bd6836668" alt = ![0bbea44682c50819869352b7d34e54d0]>
 </p>
 <hr>
 
