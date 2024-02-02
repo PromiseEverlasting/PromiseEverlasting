@@ -36,7 +36,6 @@ His comments found their way to the sacred garden
  </p>
   <p align="center"> 
   ———♡ "𝙇𝙚𝙩 𝙢𝙚 𝙨𝙞𝙣𝙜 𝙖 𝙨𝙤𝙣𝙜 𝙛𝙤𝙧 𝙢𝙮 𝙗𝙚𝙡𝙤𝙫𝙚𝙙 𝘼𝙧𝙩𝙝𝙞𝙖"
-<hr>
      <p align="center"> 
          <p align="center"> 
 ˚ʚ♡ɞ˚    
@@ -51,21 +50,45 @@ His comments found their way to the sacred garden
         ≪ ◦  
          🟢 - Any int / bored
             . ❖ .
-         ⛔ - Busy irl / playing 
-   ◦ ≫
-          </p>
-              <p align="center"> 
+         ⛔ - Busy irl / playing ◦ ≫
+    </p>
+  <p align="center">
+ ✩ . Only active status, mostly i would be busy and afk all the time but that doesnt mean you cant approach me . ✩
+</p>
+<p align="center">
+🎀
+</p>  
+<p align="center">
+─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
+   </p>
+<p align="center">
+Dnicf - Miko,Rex,Kyu,Aki,Nox,Venther 
+ </p>
+<p align="center"> 
+  Dni - I wont be talking much but you can still int/whisp if any important    
+</p>
+ <p align="center"> 
+if im alone you dont have ask me for cuddles just go right ahead
+  </p>
+ <p align="center"> 
+ if im not, and im with my friends please ask first  
+</p>
+ <p align="center"> 
+ if you are my friend/friendlist you can cuddle me no need to ask even im with my other friends 
+ </p>
+<p align="center"> 
+𝗶 𝗹𝗼𝘃𝗲 𝗺𝗮𝗸𝗶𝗻𝗴 𝗳𝗿𝗶𝗲𝗻𝗱𝘀 𝗮𝗻𝗱 𝗜 𝗳𝗼𝗹𝗹𝗼𝘄 𝗯𝗮𝗰𝗸
+</p>
+<p align="center"> 
 ︵‿︵‿୨♡୧‿︵‿︵
-              </p>
+ </p>
                 <p align="center"> 
                 <a href="https://rentry.co/SerenadeLove" target="[M]">𝗠𝗘</a>
                 </p>
-                  <p align="center"> 
-                𝗶 𝗹𝗼𝘃𝗲 𝗺𝗮𝗸𝗶𝗻𝗴 𝗳𝗿𝗶𝗲𝗻𝗱𝘀 𝗮𝗻𝗱 𝗜 𝗳𝗼𝗹𝗹𝗼𝘄 𝗯𝗮𝗰𝗸
-                  </p>
-                  <p align="center"> 
-                ପ(๑•ᴗ•๑)ଓ ♡
-                  </p>
+             
+ <p align="center"> 
+ ପ(๑•ᴗ•๑)ଓ ♡
+</p>
 <p align="center"> 
   <img width="200" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/5dfa6fcf-d9c3-4723-a355-178bd6836668" alt = ![0bbea44682c50819869352b7d34e54d0]>
 </p>
