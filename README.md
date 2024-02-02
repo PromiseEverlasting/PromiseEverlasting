@@ -62,7 +62,7 @@ His comments found their way to the sacred garden
 ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
    </p>
 <p align="center">
-Dnicf - Miko,Rex,Kyu,Aki,Nox,Venther 
+Dniucf - Miko,Rex,Kyu,Aki,Nox,Venther 
  </p>
 <p align="center"> 
   Dni - I wont be talking much but you can still int/whisp if any important    
