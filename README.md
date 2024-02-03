@@ -62,7 +62,7 @@ His comments found their way to the sacred garden
 ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
    </p>
 <p align="center">
-Dniucf - Miko,Rex,Kyu,Aki,Nox,Venther 
+Dniucf - Miko ┊ Rex ┊ Kyu ┊ Aki ┊ Nox ┊ Venther ┊ Oya ┊ ⋆˚
  </p>
 <p align="center"> 
   Dni - I wont be talking much but you can still int/whisp if any important    
@@ -75,6 +75,8 @@ if im alone you dont have ask me for cuddles just go right ahead
 </p>
  <p align="center"> 
  if you are my friend/friendlist you can cuddle me no need to ask even im with my other friends 
+    <p align="center"> 
+      Lemoni┊Suki┊Kero/kiki┊Xene/Nyancat┊Angel┊Mist┊Mir┊Mel┊Sun and Moon┊Mr Maevwa/sharky┊Bee┊Idiot┊Nana┊Joy┊ ⋆˚
  </p>
 <p align="center"> 
 𝗶 𝗹𝗼𝘃𝗲 𝗺𝗮𝗸𝗶𝗻𝗴 𝗳𝗿𝗶𝗲𝗻𝗱𝘀 𝗮𝗻𝗱 𝗜 𝗳𝗼𝗹𝗹𝗼𝘄 𝗯𝗮𝗰𝗸
