@@ -91,17 +91,27 @@ if im alone you dont have ask me for cuddles just go right ahead
                  <img width="380" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/8b207e99-af7f-47b8-b4e1-1d5380430e98" alt = [pony-town-♪ ⋆ - _ 😽 My bride Arthia_3-sit-blinking-name-padded-4x]>
               </p>
 <p align="center"> 
-              𝘛𝘪𝘮𝘦 𝘪𝘴 𝘳𝘪𝘨𝘩𝘵 𝘺𝘰𝘶𝘳 𝘱𝘦𝘳𝘧𝘶𝘮𝘦 
-𝘍𝘪𝘭𝘭𝘴 𝘮𝘺 𝘩𝘦𝘢𝘥
-𝘛𝘩𝘦 𝘴𝘵𝘢𝘳 𝘨𝘦𝘵𝘴 𝘳𝘦𝘥 𝘢𝘯𝘥 𝘰𝘩,𝘵𝘩𝘦 𝘯𝘪𝘨𝘩𝘵'𝘴 𝘴𝘰 𝘣𝘭𝘶𝘦
-𝘈𝘯𝘥 𝘵𝘩𝘦𝘯 𝘐 𝘨𝘰 𝘢𝘯𝘥 𝘴𝘱𝘰𝘪𝘭 𝘪𝘵 𝘢𝘭𝘭
-𝘉𝘺 𝘴𝘢𝘺𝘪𝘯𝘨 𝘴𝘰𝘮𝘦𝘵𝘩𝘪𝘯𝘨 𝘴𝘵𝘶𝘱𝘪𝘥 𝘭𝘪𝘬𝘦
-"𝘐 𝘭𝘰𝘷𝘦 𝘺𝘰𝘶"
+              𝙏𝙞𝙢𝙚 𝘪𝘴 
+r̶i̶g̶h̶t̶ 𝘺𝘰𝘶𝘳 ᴘᴇʀꜰᴜᴍᴇ , 𝐟𝐢𝐥𝐥𝐬 𝘮𝘺 𝐡𝐞𝐚𝐝
+        <p align="center">  
+𝘛𝘩𝘦 ˢᵗᵃʳ☆ gєтѕ 𝑅𝑒𝒹 𝘢𝘯𝘥 𝘰𝘩,𝘵𝘩𝘦 𝒩𝒾𝑔𝒽𝓉's☾ 𝘴𝘰 𝗯𝗹𝘂𝗲
+            <p align="center">  
+AND 𝘵𝘩𝘦𝘯 I 𝘨𝘰 𝘢𝘯𝘥 
+𝙨𝙥𝙤𝙞𝙡 𝘪𝘵 𝓪𝓵𝓵
+                <p align="center">  
+𝘉𝘺 𝙨𝙖𝙮𝙞𝙣𝙜 𝚜𝚘𝚖𝚎𝚝𝚑𝚒𝚗𝚐 ＳＴＵＰＩＤ 𝘭𝘪𝘬𝘦
+                    <p align="center">  
+˚ 𝙞 𝙡𝙤𝙫𝙚 𝙮𝙤𝙪 ˚ 
+<p align="center">         
+            ♡           
+                    </p>
                </p>
                <p align="center"> 
-                 <img width="380" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/ad889a8a-bad8-4fb3-baf7-44fc570f1240" alt = ![lv_0_20240204204722]
+                 <img width="280" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/ad889a8a-bad8-4fb3-baf7-44fc570f1240" alt = ![lv_0_20240204204722]
  <p align="center"> 
- ପ(๑•ᴗ•๑)ଓ ♡
+               </p>
+                <p align="center">  
+ ପ(๑•ᴗ•๑)ଓ 
 </p>
 
 <hr>
