@@ -90,9 +90,19 @@ if im alone you dont have ask me for cuddles just go right ahead
               <p align="center"> 
                  <img width="380" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/8b207e99-af7f-47b8-b4e1-1d5380430e98" alt = [pony-town-♪ ⋆ - _ 😽 My bride Arthia_3-sit-blinking-name-padded-4x]>
               </p>
-
+<p align="center"> 
+              𝘛𝘪𝘮𝘦 𝘪𝘴 𝘳𝘪𝘨𝘩𝘵 𝘺𝘰𝘶𝘳 𝘱𝘦𝘳𝘧𝘶𝘮𝘦 
+𝘍𝘪𝘭𝘭𝘴 𝘮𝘺 𝘩𝘦𝘢𝘥
+𝘛𝘩𝘦 𝘴𝘵𝘢𝘳 𝘨𝘦𝘵𝘴 𝘳𝘦𝘥 𝘢𝘯𝘥 𝘰𝘩,𝘵𝘩𝘦 𝘯𝘪𝘨𝘩𝘵'𝘴 𝘴𝘰 𝘣𝘭𝘶𝘦
+𝘈𝘯𝘥 𝘵𝘩𝘦𝘯 𝘐 𝘨𝘰 𝘢𝘯𝘥 𝘴𝘱𝘰𝘪𝘭 𝘪𝘵 𝘢𝘭𝘭
+𝘉𝘺 𝘴𝘢𝘺𝘪𝘯𝘨 𝘴𝘰𝘮𝘦𝘵𝘩𝘪𝘯𝘨 𝘴𝘵𝘶𝘱𝘪𝘥 𝘭𝘪𝘬𝘦
+"𝘐 𝘭𝘰𝘷𝘦 𝘺𝘰𝘶"
+               </p>
+               <p align="center"> 
+                 <img width="380" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/ad889a8a-bad8-4fb3-baf7-44fc570f1240" alt = ![lv_0_20240204204722]
  <p align="center"> 
  ପ(๑•ᴗ•๑)ଓ ♡
 </p>
+
 <hr>
 
