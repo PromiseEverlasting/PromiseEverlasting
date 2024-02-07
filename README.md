@@ -56,7 +56,7 @@ His comments found their way to the sacred garden
  ✩ . Only active status, mostly i would be busy and afk all the time but that doesnt mean you cant approach me . ✩
 </p>
 <p align="center">
-🎀
+ <img width="20" src=https://64.media.tumblr.com/0018ac2053c69abb00c067f033f75593/03c55896bb928977-5c/s75x75_c1/236f62136e53baf3c80ea77c0b351a2bb6b0e734.gifv>
 </p>  
 <p align="center">
 ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
