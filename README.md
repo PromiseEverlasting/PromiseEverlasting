@@ -8,7 +8,8 @@
       <p align="center">
     *ੈ✩‧₊˚
           <p align="center">
-            ———♡ "𝘆𝗼𝘂𝗿 𝗶𝗻𝘀𝗮𝗻𝗲..𝗜 𝗹𝗼𝘃𝗲 𝗶𝘁"
+            ———♡ "𝙔𝙤𝙪𝙧 𝙞𝙣𝙨𝙖𝙣𝙚 . . 𝙞 𝙡𝙤𝙫𝙚 𝙞𝙩
+"
 </p>
 
 <p align="center">
@@ -88,7 +89,7 @@ if im alone you dont have ask me for cuddles just go right ahead
  <p align="center"> 
  if you are my friend/friendlist you can cuddle me no need to ask even im with my other friends 
     <p align="center"> 
-      Lemoni┊Suki┊Kero/kiki┊Xene/Nyancat┊Angel┊Mist┊Mir┊Mel┊Sun and Moon┊Mr Maevwa/sharky┊Bee┊Idiot┊Nana┊Joy
+      Lemoni┊Suki┊Kero/kiki┊Xene/Nyancat┊Angel┊Mist┊Mir┊Mel┊Sun and Moon┊Mr Maevwa/sharky┊Bee┊Idiot┊Nana┊Nova┊Meesha
  </p>
 <p align="center"> 
 𝗶 𝗹𝗼𝘃𝗲 𝗺𝗮𝗸𝗶𝗻𝗴 𝗳𝗿𝗶𝗲𝗻𝗱𝘀 𝗮𝗻𝗱 𝗜 𝗳𝗼𝗹𝗹𝗼𝘄 𝗯𝗮𝗰𝗸
