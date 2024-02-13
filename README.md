@@ -4,12 +4,11 @@
   <p align="center">
   .·:*¨༺ ༻¨*:·.
   <p align="center">
-  <img width="460" src=https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/343a2b38-4a22-4b04-8bf3-01eeced53341 alt =  ![377481884_1017162489547815_7401227827429232504_n (1)]>
+  <img width="460" src = "https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/1314adde-7317-4ede-91a8-d901aeff257d" alt = ![aea39bee8e344b4ecd6782e6384692a7 (1)]>
       <p align="center">
     *ੈ✩‧₊˚
           <p align="center">
-            ———♡ "𝙔𝙤𝙪𝙧 𝙞𝙣𝙨𝙖𝙣𝙚 . . 𝙞 𝙡𝙤𝙫𝙚 𝙞𝙩
-"
+            ———♡ "𝙨𝙩𝙖𝙞𝙣𝙚𝙙 𝙧𝙚𝙙 𝙬𝙞𝙩𝙝 𝘼𝙯𝙧𝙞𝙖 𝙡𝙞𝙥𝙨."
 </p>
 
 <p align="center">
@@ -19,7 +18,7 @@
 ..••°°°°••..
 </p>
 <p align="center">
-  <img width="460" src="https://pbs.twimg.com/media/F-fYyv4agAAjoS9?format=jpg&name=small">
+  <img width="430" src="https://pbs.twimg.com/media/F-fYyv4agAAjoS9?format=jpg&name=small">
 </p>
 <p align="center">
 ︶꒦꒷♡꒷꒦︶
