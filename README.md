@@ -8,7 +8,7 @@
       <p align="center">
     *ੈ✩‧₊˚
           <p align="center">
-            ———♡ "𝙨𝙩𝙖𝙞𝙣𝙚𝙙 𝙧𝙚𝙙 𝙬𝙞𝙩𝙝 𝘼𝙯𝙧𝙞𝙖 / 𝘼𝙧𝙩𝙝𝙞𝙖  𝙡𝙞𝙥𝙨."
+            ———♡ "𝙨𝙩𝙖𝙞𝙣𝙚𝙙 𝙧𝙚𝙙 𝙬𝙞𝙩𝙝 𝘼𝙯𝙧𝙞𝙖 𝙡𝙞𝙥𝙨."
 </p>
 
 <p align="center">
@@ -62,7 +62,7 @@ His comments found their way to the sacred garden
         ≪ ◦  
          🟢 - Any int / bored
             . ❖ .
-         ⛔ - Busy irl / playing ◦ ≫
+         ⛔ - Busy irl / playing 🌙 - Sleeping / offtab ◦ ≫
     </p>
   <p align="center">
  ✩ . Only active status, mostly i would be busy and afk all the time but that doesnt mean you cant approach me . ✩
