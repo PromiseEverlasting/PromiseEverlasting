@@ -8,7 +8,7 @@
       <p align="center">
     *ੈ✩‧₊˚
           <p align="center">
-            ———♡ "𝙨𝙩𝙖𝙞𝙣𝙚𝙙 𝙧𝙚𝙙 𝙬𝙞𝙩𝙝 𝘼𝙯𝙧𝙞𝙖 𝙡𝙞𝙥𝙨."
+            ———♡ "𝙨𝙩𝙖𝙞𝙣𝙚𝙙 𝙧𝙚𝙙 𝙬𝙞𝙩𝙝 𝙝𝙚𝙧 𝙡𝙞𝙥𝙨."
 </p>
 
 <p align="center">
@@ -74,7 +74,7 @@ His comments found their way to the sacred garden
 ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
    </p>
 <p align="center">
-Dniucf - Miko ┊ Rex ┊ Kyu ┊ Aki ┊ Nox ┊ Vether ┊ Oya ┊ ⋆˚
+Dniucf - Miko ┊ Rex ┊ Kyu ┊ Aki ┊ Nox ┊ Vether ┊ Oya ┊ Vincenzo ⋆˚
  </p>
 <p align="center"> 
   Dni - I wont be talking much but you can still int/whisp if any important    
@@ -91,7 +91,7 @@ if im alone you dont have ask me for cuddles just go right ahead
       Lemoni┊Suki┊Kero/kiki┊Xeneles/Nyancat┊Angel┊Mist┊Mir┊Mel┊Sun and Moon┊Mr Maevwa/sharky┊Bee┊Idiot┊Nana┊Nova┊Meesha
  </p>
 <p align="center"> 
-𝗶 𝗹𝗼𝘃𝗲 𝗺𝗮𝗸𝗶𝗻𝗴 𝗳𝗿𝗶𝗲𝗻𝗱𝘀 𝗮𝗻𝗱 𝗜 𝗳𝗼𝗹𝗹𝗼𝘄 𝗯𝗮𝗰𝗸
+𝗶 𝗹𝗼𝘃𝗲 𝗺𝗮𝗸𝗶𝗻𝗴 𝗳𝗿𝗶𝗲𝗻𝗱𝘀 
 </p>
 <p align="center"> 
 ︵‿︵‿୨♡୧‿︵‿︵
