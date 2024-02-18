@@ -53,10 +53,10 @@ His comments found their way to the sacred garden
 ˚ʚ♡ɞ˚    
         </p>
              <p align="center"> 
-              𝘑𝘢𝘮𝘦𝘴 𝘈𝘳𝘵𝘩𝘶𝘳 - 𝘊𝘢𝘯 𝘪 𝘣𝘦 𝘩𝘪𝘮?
+             MAX - STUPID IN LOVE 
                </p>
          <p align="center"> 
-1:28 ───ㅇ───── 3:40
+ <audio scr = https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/c180de16-5e8a-4971-bf42-6078ed7abec0 width= 80>
          </p>
           <p align="center">
         ≪ ◦  
@@ -101,9 +101,8 @@ if im alone you dont have ask me for cuddles just go right ahead
                 <p align="center"> 
                 <a href="https://rentry.co/SerenadeLove" target="[M]">𝗠𝗘</a>
                 </p>
-              <p align="center"> 
-                 <img width="380" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/8b207e99-af7f-47b8-b4e1-1d5380430e98" alt = [pony-town-♪ ⋆ - _ 😽 My bride Arthia_3-sit-blinking-name-padded-4x]>
-              </p>
+ <img width="380" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/8b207e99-af7f-47b8-b4e1-1d5380430e98" alt = ![pony-town-♪ ⋆ - _ 😽 My bride Arthia_3-sit-blinking-name-padded-4x]>   
+   <img width="230" src=https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/a3763161-1e6a-42b3-b63e-d0d50652bca6) alt =  ![pony-town-mustard flavor-boop-sit-blinking-name-ponyplush-4x]>
 <p align="center"> 
               𝙏𝙞𝙢𝙚 𝘪𝘴 
 r̶i̶g̶h̶t̶ 𝘺𝘰𝘶𝘳 ᴘᴇʀꜰᴜᴍᴇ , 𝐟𝐢𝐥𝐥𝐬 𝘮𝘺 𝐡𝐞𝐚𝐝
