@@ -4,7 +4,7 @@
   <p align="center">
   .·:*¨༺ ༻¨*:·.
   <p align="center">
-  <img width="460" src = "https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/1314adde-7317-4ede-91a8-d901aeff257d" alt = ![aea39bee8e344b4ecd6782e6384692a7 (1)]>
+<video src= https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/20fee996-d805-4882-92c8-39e73e9a175a width=100 height=100/>
       <p align="center">
     *ੈ✩‧₊˚
           <p align="center">
