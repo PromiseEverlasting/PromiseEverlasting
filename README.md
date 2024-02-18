@@ -101,8 +101,11 @@ if im alone you dont have ask me for cuddles just go right ahead
                 <p align="center"> 
                 <a href="https://rentry.co/SerenadeLove" target="[M]">𝗠𝗘</a>
                 </p>
- <img width="380" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/8b207e99-af7f-47b8-b4e1-1d5380430e98" alt = ![pony-town-♪ ⋆ - _ 😽 My bride Arthia_3-sit-blinking-name-padded-4x]>   
-   <img width="230" src=https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/a3763161-1e6a-42b3-b63e-d0d50652bca6) alt =  ![pony-town-mustard flavor-boop-sit-blinking-name-ponyplush-4x]>
+    <p align="center"> 
+ <img width="170" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/2e25e532-3daf-4b3a-af33-4c5106db6747" alt = ![pony-town-🍫 - Seven!-sit-blinking-name-4x]>
+ <img width="400" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/8b207e99-af7f-47b8-b4e1-1d5380430e98" alt = ![pony-town-♪ ⋆ - _ 😽 My bride Arthia_3-sit-blinking-name-padded-4x]>   
+   <img width="220" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/a3763161-1e6a-42b3-b63e-d0d50652bca6"alt =  ![pony-town-mustard flavor-boop-sit-blinking-name-ponyplush-4x]>
+    </p>
 <p align="center"> 
               𝙏𝙞𝙢𝙚 𝘪𝘴 
 r̶i̶g̶h̶t̶ 𝘺𝘰𝘶𝘳 ᴘᴇʀꜰᴜᴍᴇ , 𝐟𝐢𝐥𝐥𝐬 𝘮𝘺 𝐡𝐞𝐚𝐝
