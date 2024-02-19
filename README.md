@@ -60,11 +60,11 @@ His comments found their way to the sacred garden
          </p>
           <p align="center">
         ≪ ◦  
-         🟢 - Any int / bored
+         🟢 - Any int / bored / Silly 
             . ❖ .
-         ⛔ - Busy irl / playing 
+         ⛔ - Working / playing / Chores
             . ❖ .
-          🌙 - Sleeping / offtab ◦ ≫
+          🌙 - Sleeping / offtab / Outside ◦ ≫
     </p>
   <p align="center">
  ✩ . Only active status, mostly i would be busy and afk all the time but that doesnt mean you cant approach me . ✩
