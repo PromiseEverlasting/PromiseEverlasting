@@ -56,8 +56,9 @@ His comments found their way to the sacred garden
              MAX - STUPID IN LOVE 
                </p>
          <p align="center"> 
- <audio scr = https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/c180de16-5e8a-4971-bf42-6078ed7abec0 width= 80>
-         </p>
+<img width="300" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/4af92362-192e-49a8-9e04-b18d5564a834" alt = ![Screenshot_13]>
+            <p align="center">
+              Art by Nox (○｀ 3′○)
           <p align="center">
         ≪ ◦  
          🟢 - Any int / bored / Silly 
@@ -102,9 +103,7 @@ if im alone you dont have ask me for cuddles just go right ahead
                 <a href="https://rentry.co/SerenadeLove" target="[M]">𝗠𝗘</a>
                 </p>
     <p align="center"> 
- <img width="170" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/2e25e532-3daf-4b3a-af33-4c5106db6747" alt = ![pony-town-🍫 - Seven!-sit-blinking-name-4x]>
  <img width="400" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/8b207e99-af7f-47b8-b4e1-1d5380430e98" alt = ![pony-town-♪ ⋆ - _ 😽 My bride Arthia_3-sit-blinking-name-padded-4x]>   
-   <img width="220" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/a3763161-1e6a-42b3-b63e-d0d50652bca6"alt =  ![pony-town-mustard flavor-boop-sit-blinking-name-ponyplush-4x]>
     </p>
 <p align="center"> 
               𝙏𝙞𝙢𝙚 𝘪𝘴 
