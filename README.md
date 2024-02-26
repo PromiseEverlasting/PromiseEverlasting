@@ -103,7 +103,11 @@ if im alone you dont have ask me for cuddles just go right ahead
                 <a href="https://rentry.co/SerenadeLove" target="[M]">𝗠𝗘</a>
                 </p>
     <p align="center"> 
- <img width="400" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/8b207e99-af7f-47b8-b4e1-1d5380430e98" alt = ![pony-town-♪ ⋆ - _ 😽 My bride Arthia_3-sit-blinking-name-padded-4x]>   
+ <img width="200" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/74013add-5987-4094-ad1a-279e4976d44e" alt = ![pony-town-90-sit-blinking-name-padded-ponyplush-4x]> 
+      <img width="200" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/1cb900f7-522f-4341-b8e2-7421777b29c7" alt =![pony-town- romance -sit-blinking-name-padded-4x]> 
+        <p align="center"> 
+      <img width="300" src="https://github.com/BarbatosWife/BarbatosWife/assets/151441588/44f7f727-4934-45ae-96b2-0973ca4d4c7e alt=![pony-town-♫ - _ 💮 Beauty of a flower-boop-sit-blush-tears-blinking-name-padded-5x (1)]"> 
+   <img width="200" src="https://github.com/BarbatosWife/BarbatosWife/assets/151441588/d304e8a2-1918-46cf-962c-655587f28e61 alt=![pony-town-☁ - A divine life-sit-blinking-name-padded-5x]">  
     </p>
 <p align="center"> 
               𝙏𝙞𝙢𝙚 𝘪𝘴 
