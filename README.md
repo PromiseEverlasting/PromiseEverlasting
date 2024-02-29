@@ -124,7 +124,7 @@ if im alone you dont have ask me for cuddles just go right ahead
           <p align="right">
             " Not even for a moment in my mind 𝗔𝗹𝗮𝘀𝘁𝗼𝗿 "
               <p align="left">
-                " we are long gone my sweet bell 𝗔𝘇𝗿𝗶𝗮 "
+                " we are long gone my dearest 𝗔𝘇𝗿𝗶𝗮 "
 <p align="center"> 
               𝙏𝙞𝙢𝙚 𝘪𝘴 
 r̶i̶g̶h̶t̶ 𝘺𝘰𝘶𝘳 ᴘᴇʀꜰᴜᴍᴇ , 𝐟𝐢𝐥𝐥𝐬 𝘮𝘺 𝐡𝐞𝐚𝐝
@@ -139,6 +139,14 @@ AND 𝘵𝘩𝘦𝘯 I 𝘨𝘰 𝘢𝘯𝘥
 ˚ 𝙞 𝙡𝙤𝙫𝙚 𝙮𝙤𝙪 ˚ 
 <p align="center">         
             ♡           
+<p align="center"> 
+   <img width="270" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/15b9fd99-960e-4274-b5a4-83db83e8ea8a" alt = ![423455072_373890588860683_6376122791862095103_n]>
+  <p align="center"> 
+    🍓🍮
+    <p align="center"> 
+    Strawberry smoothie
+      <p align="center"> 
+    RadioBow
                     </p>
      <p align="center">    
  ପ(๑•ᴗ•๑)ଓ 
