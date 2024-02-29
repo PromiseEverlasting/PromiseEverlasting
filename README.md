@@ -98,17 +98,26 @@ if im alone you dont have ask me for cuddles just go right ahead
 </p>
 <p align="center"> 
 ︵‿︵‿୨♡୧‿︵‿︵
- </p>
-                <p align="center"> 
-                <a href="https://rentry.co/SerenadeLove" target="[M]">𝗠𝗘</a>
-                </p>
+</p>
+                 <p align="center"> 
+              <img width="450" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/d4d2843f-69dc-4281-86d8-381cd05fefe4" alt =![Screenshot_29]()>
+                    <p align="center"> 
     <p align="center"> 
+      ꒰ Art by KNOX ! ! ꒱
+          <p align="center"> 
+            ╰┈➤ ꒰NOX꒱ <a href="https://docs.google.com/document/d/1KgC4degNJ87ImVYSY8NYqLBsmvis_JKtpcq4ZtNwvos/edit?usp=sharing" target="[M]">𝗥𝗨𝗔𝗠</a>  - Silly pilot:3 👓🎉
+              <p align="center"> 
+                ꒰CHII꒱ <a href="https://docs.google.com/document/d/1-Oqos7DqOuc_UnCEXp_42Fmtg9___SMgcEzWeB77ntM/edit?usp=sharing" target="[M]">𝗔𝗭𝗥𝗜𝗔</a>- Demon bell!👒🔔
+                 <p align="center"> 
+                   ꒰VETHER꒱<a href="https://docs.google.com/document/d/1D_cM4VduUKhaafYtU5gZnE5b7MhA4awqe_dnRZwUW0w/edit?usp=sharing" target="[M]">𝗖𝗔𝗠𝗔𝗭𝗢𝗧𝗭</a> - Sassy fashion designer 🧵🐑
+                  <p align="center"> 
+                    ꒰AOKI꒱𝗔𝗟𝗣𝗜𝗡𝗘 - Ravage Stealer 🦊💲
+                    <p align="center"> 
+                      ꒰REX꒱𝗡𝗘𝗭𝗥𝗜𝗢 - Death Haunt! 🖤🩸
+              <p align="center"> 
  <img width="200" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/74013add-5987-4094-ad1a-279e4976d44e" alt = ![pony-town-90-sit-blinking-name-padded-ponyplush-4x]> 
       <img width="200" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/1cb900f7-522f-4341-b8e2-7421777b29c7" alt =![pony-town- romance -sit-blinking-name-padded-4x]> 
         <p align="center"> 
-      <img width="300" src="https://github.com/BarbatosWife/BarbatosWife/assets/151441588/44f7f727-4934-45ae-96b2-0973ca4d4c7e alt=![pony-town-♫ - _ 💮 Beauty of a flower-boop-sit-blush-tears-blinking-name-padded-5x (1)]"> 
-   <img width="200" src="https://github.com/BarbatosWife/BarbatosWife/assets/151441588/d304e8a2-1918-46cf-962c-655587f28e61 alt=![pony-town-☁ - A divine life-sit-blinking-name-padded-5x]">  
-    </p>
 <p align="center"> 
               𝙏𝙞𝙢𝙚 𝘪𝘴 
 r̶i̶g̶h̶t̶ 𝘺𝘰𝘶𝘳 ᴘᴇʀꜰᴜᴍᴇ , 𝐟𝐢𝐥𝐥𝐬 𝘮𝘺 𝐡𝐞𝐚𝐝
