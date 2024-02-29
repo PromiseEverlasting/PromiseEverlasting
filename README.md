@@ -117,7 +117,14 @@ if im alone you dont have ask me for cuddles just go right ahead
               <p align="center"> 
  <img width="200" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/74013add-5987-4094-ad1a-279e4976d44e" alt = ![pony-town-90-sit-blinking-name-padded-ponyplush-4x]> 
       <img width="200" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/1cb900f7-522f-4341-b8e2-7421777b29c7" alt =![pony-town- romance -sit-blinking-name-padded-4x]> 
-        <p align="center"> 
+        <p align="right"> 
+          " I hate you so much but. . ."
+           <p align="left">
+             " You cant let me go "
+          <p align="right">
+            " Not even for a moment in my mind 𝗔𝗹𝗮𝘀𝘁𝗼𝗿 "
+              <p align="left">
+                " we are long gone my sweet bell 𝗔𝘇𝗿𝗶𝗮 "
 <p align="center"> 
               𝙏𝙞𝙢𝙚 𝘪𝘴 
 r̶i̶g̶h̶t̶ 𝘺𝘰𝘶𝘳 ᴘᴇʀꜰᴜᴍᴇ , 𝐟𝐢𝐥𝐥𝐬 𝘮𝘺 𝐡𝐞𝐚𝐝
@@ -133,12 +140,7 @@ AND 𝘵𝘩𝘦𝘯 I 𝘨𝘰 𝘢𝘯𝘥
 <p align="center">         
             ♡           
                     </p>
-               </p>
-               <p align="center"> 
-                 <img width="280" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/ad889a8a-bad8-4fb3-baf7-44fc570f1240" alt = ![lv_0_20240204204722]
- <p align="center"> 
-               </p>
-                <p align="center">  
+     <p align="center">    
  ପ(๑•ᴗ•๑)ଓ 
 </p>
 
