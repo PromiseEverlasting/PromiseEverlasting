@@ -124,7 +124,7 @@ if im alone you dont have ask me for cuddles just go right ahead
           <p align="right">
             " Not even for a moment in my mind 𝗔𝗹𝗮𝘀𝘁𝗼𝗿 "
               <p align="left">
-                " we are long gone my dearest 𝗔𝘇𝗿𝗶𝗮 "
+                " we are long gone my dear, 𝗔𝘇𝗿𝗶𝗮 "
 <p align="center"> 
               𝙏𝙞𝙢𝙚 𝘪𝘴 
 r̶i̶g̶h̶t̶ 𝘺𝘰𝘶𝘳 ᴘᴇʀꜰᴜᴍᴇ , 𝐟𝐢𝐥𝐥𝐬 𝘮𝘺 𝐡𝐞𝐚𝐝
