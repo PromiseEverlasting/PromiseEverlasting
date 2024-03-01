@@ -77,7 +77,7 @@ His comments found their way to the sacred garden
 ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
    </p>
 <p align="center">
-Dniucf - Miko ┊ Rex ┊ Kyu ┊ Aki ┊ Nox ┊ Vether ┊ Oya ┊ Vincenzo ⋆˚
+Dniucf - Miko ┊ Rex ┊ Kyu ┊ Aki ┊ Nox ┊ Vether ┊ Oya ┊ Vincenzo ┊ Cyber⋆˚
  </p>
 <p align="center"> 
   Dni - I wont be talking much but you can still int/whisp if any important    
@@ -91,7 +91,7 @@ if im alone you dont have ask me for cuddles just go right ahead
  <p align="center"> 
  if you are my friend/friendlist you can cuddle me no need to ask even im with my other friends 
     <p align="center"> 
-     Cyber┊Lemoni┊Suki┊Kero/kiki┊Xeneles/Nyancat┊Angel┊Mist┊Mir┊Mel┊Sun and Moon┊Mr Maevwa/sharky┊Idiot┊Nana┊Nova┊Meesha┊Cele┊July┊Azeralla┊Yuki
+  Lemoni┊Suki┊Kero/kiki┊Xeneles/Nyancat┊Angel┊Mist┊Mir┊Mel┊Sun and Moon┊Mr Maevwa/sharky┊Idiot┊Nana┊Nova┊Meesha┊Cele┊July┊Azeralla┊Yuki
  </p>
 <p align="center"> 
 𝗶 𝗹𝗼𝘃𝗲 𝗺𝗮𝗸𝗶𝗻𝗴 𝗳𝗿𝗶𝗲𝗻𝗱𝘀 
