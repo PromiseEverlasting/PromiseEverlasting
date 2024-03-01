@@ -116,6 +116,7 @@ if im alone you dont have ask me for cuddles just go right ahead
                       ꒰REX꒱𝗡𝗘𝗭𝗥𝗜𝗢 - Death Haunt! 🖤🩸
               <p align="center"> 
                  ꒰KYU꒱𝗔𝗭𝗘𝗟- souls live 🥀🕕
+                <p align="center"> 
  <img width="200" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/74013add-5987-4094-ad1a-279e4976d44e" alt = ![pony-town-90-sit-blinking-name-padded-ponyplush-4x]> 
       <img width="200" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/1cb900f7-522f-4341-b8e2-7421777b29c7" alt =![pony-town- romance -sit-blinking-name-padded-4x]> 
         <p align="right"> 
