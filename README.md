@@ -150,7 +150,7 @@ AND 𝘵𝘩𝘦𝘯 I 𝘨𝘰 𝘢𝘯𝘥
       <p align="center"> 
     RadioBow
          <p align="center"> 
-              "a kiss like never before..𝐝𝐞𝐯𝐨𝐮𝐫𝐢𝐧𝐠 𝐞𝐯𝐞𝐫 𝐢𝐧𝐜𝐡 𝐨𝐟 𝐲𝐨𝐮. "
+              "a kiss like never before.. before 𝐝𝐞𝐯𝐨𝐮𝐫𝐢𝐧𝐠 𝐞𝐯𝐞𝐫 𝐢𝐧𝐜𝐡 𝐨𝐟 𝐲𝐨𝐮. "
                     </p>
      <p align="center">    
  ପ(๑•ᴗ•๑)ଓ 
