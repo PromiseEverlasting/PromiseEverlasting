@@ -109,7 +109,7 @@ if im alone you dont have ask me for cuddles just go right ahead
               <p align="center"> 
                 ꒰CHII꒱ <a href="https://docs.google.com/document/d/1-Oqos7DqOuc_UnCEXp_42Fmtg9___SMgcEzWeB77ntM/edit?usp=sharing" target="[M]">𝗔𝗭𝗥𝗜𝗔</a>- Demon Bell!👒🔔
                  <p align="center"> 
-                   ꒰VETHER꒱<a href="https://docs.google.com/document/d/1D_cM4VduUKhaafYtU5gZnE5b7MhA4awqe_dnRZwUW0w/edit?usp=sharing" target="[M]">𝗖𝗔𝗠𝗔𝗭𝗢𝗧𝗭</a> - Sassy fashion designer 🧵🐑
+                   ꒰VETHER꒱ 𝗖𝗔𝗠𝗔𝗭𝗢𝗧𝗭 - Sassy fashion designer 🧵🐑
                   <p align="center"> 
                     ꒰AOKI꒱𝗔𝗟𝗣𝗜𝗡𝗘 - Ravage Stealer 🦊💲
                     <p align="center"> 
