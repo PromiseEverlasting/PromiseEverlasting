@@ -127,6 +127,12 @@ if im alone you dont have ask me for cuddles just go right ahead
             " Not even for a moment in my mind 𝗔𝗹𝗮𝘀𝘁𝗼𝗿 "
               <p align="left">
                 " we are long gone my dear, 𝗔𝘇𝗿𝗶𝗮 "
+    <p align="center"> 
+                    ✿
+                  <p align="right"> 
+              "𝘩𝘰𝘸 𝘤𝘰𝘶𝘭𝘥 𝘺𝘰𝘶 𝘣𝘦 𝘴𝘰 𝘳𝘦𝘤𝘬𝘭𝘦𝘴𝘴 𝘸𝘪𝘵𝘩 𝘮𝘺 𝗵𝗲𝗮𝗿𝘁?"
+                     <p align="left">
+                       "𝘵𝘩𝘳𝘰𝘸 𝘵𝘩𝘢𝘵 𝘳𝘪𝘯𝘨 𝘣𝘦𝘧𝘰𝘳𝘦 𝘪𝘵𝘴 𝘵𝘰𝘰 𝘭𝘢𝘵𝘦 . ."
 <p align="center"> 
               𝙏𝙞𝙢𝙚 𝘪𝘴 
 r̶i̶g̶h̶t̶ 𝘺𝘰𝘶𝘳 ᴘᴇʀꜰᴜᴍᴇ , 𝐟𝐢𝐥𝐥𝐬 𝘮𝘺 𝐡𝐞𝐚𝐝
@@ -148,13 +154,14 @@ AND 𝘵𝘩𝘦𝘯 I 𝘨𝘰 𝘢𝘯𝘥
     <p align="center"> 
     Strawberry smoothie
       <p align="center"> 
-    RadioBow
+    RadioBell
          <p align="center"> 
-              "a kiss like never before.. before 𝐝𝐞𝐯𝐨𝐮𝐫𝐢𝐧𝐠 𝐞𝐯𝐞𝐫 𝐢𝐧𝐜𝐡 𝐨𝐟 𝐲𝐨𝐮. "
+            Alaria
+            <p align="center"> 
+              LoveSick
                     </p>
      <p align="center">    
  ପ(๑•ᴗ•๑)ଓ 
 </p>
-
 <hr>
 
