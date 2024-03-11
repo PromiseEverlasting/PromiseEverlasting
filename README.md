@@ -161,6 +161,8 @@ AND 𝘵𝘩𝘦𝘯 I 𝘨𝘰 𝘢𝘯𝘥
             Alaria
             <p align="center"> 
               LoveSick
+                <p align="center"> 
+                 <img width="250" src=https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/d9c61c6c-7ed5-48ad-aa13-2399e5a43287 alt = ![Screenshot_4]>
                     </p>
      <p align="center">    
  ପ(๑•ᴗ•๑)ଓ 
