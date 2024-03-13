@@ -10,26 +10,6 @@
           <p align="center">
             ———♡ "𝙨𝙩𝙖𝙞𝙣𝙚𝙙 𝙧𝙚𝙙 𝙬𝙞𝙩𝙝 𝙝𝙚𝙧 𝙡𝙞𝙥𝙨."
 </p>
-
-<p align="center">
-💊
-</p>
-<p align="center">
-..••°°°°••..
-</p>
-<p align="center">
-  <img width="430" src="https://pbs.twimg.com/media/F-fYyv4agAAjoS9?format=jpg&name=small">
-</p>
-<p align="center">
-︶꒦꒷♡꒷꒦︶
-  </p>
-  <p align="center">
-Basking in the warm sun, surrounded by the chirping of birds and the scent of flowers, Zayne treasures these rare moments of afternoon leisure.
-As a surgeon with steady hands, being able to use a knife to peel an apple in one go is a basic skill.
-  </p>
-  <p align="center">
-———♡ "𝙄'𝙢 𝙡𝙤𝙤𝙠𝙞𝙣𝙜 𝙛𝙤𝙧𝙬𝙖𝙧𝙙 𝙩𝙤 𝙤𝙪𝙧 𝙣𝙚𝙭𝙩 𝙢𝙚𝙚𝙩𝙞𝙣𝙜. ."
-  </p>
     <p align="center">
       🍃
     </p>
@@ -91,7 +71,7 @@ if im alone you dont have ask me for cuddles just go right ahead
  <p align="center"> 
  if you are my friend/friendlist you can cuddle me no need to ask even im with my other friends 
     <p align="center"> 
-  Lemoni┊Suki┊Kero/kiki┊Xeneles/Nyancat┊Angel┊Mist┊Mir┊Mel┊Sun and Moon┊Mr Maevwa/sharky┊Idiot┊Nana┊Nova┊Meesha┊Cele┊July┊Azeralla┊Yuki┊Sparky┊Cal ! !
+  Lemoni┊Suki┊Kero/kiki┊Xeneles/Nyancat┊Angel┊Mist┊Mir┊Mel┊Sun and Moon┊Mr Maevwa/sharky┊Idiot┊Nana┊Nova┊Meesha┊Cele┊July┊Azeralla┊Yuki┊Sparky┊Cal┊Mai ! !
  </p>
 <p align="center"> 
 𝗶 𝗹𝗼𝘃𝗲 𝗺𝗮𝗸𝗶𝗻𝗴 𝗳𝗿𝗶𝗲𝗻𝗱𝘀 
@@ -104,10 +84,13 @@ if im alone you dont have ask me for cuddles just go right ahead
                     <p align="center"> 
     <p align="center"> 
       ꒰ Art by KNOX ! ! ꒱
-          <p align="center"> 
-            ╰┈➤ ꒰NOX꒱ <a href="https://docs.google.com/document/d/1KgC4degNJ87ImVYSY8NYqLBsmvis_JKtpcq4ZtNwvos/edit?usp=sharing" target="[M]">𝗥𝗨𝗔𝗠</a>  - Star Pilot:3 👓🎉
-              <p align="center"> 
-                ꒰CHII꒱ <a href="https://docs.google.com/document/d/1-Oqos7DqOuc_UnCEXp_42Fmtg9___SMgcEzWeB77ntM/edit?usp=sharing" target="[M]">𝗔𝗭𝗥𝗜𝗔</a>- Demon Bell!👒🔔
+        <p align="left">
+          <img width="200" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/8617c9ca-9dcf-48c8-bdd1-a6adcb10ddba" alt = ![pony-town-Ruam 🩵⚠ ! !-boop-sit-blinking-padded-4x]>  ꒰NOX꒱ <a href="https://docs.google.com/document/d/1KgC4degNJ87ImVYSY8NYqLBsmvis_JKtpcq4ZtNwvos/edit?usp=sharing" target="[M]">𝗥𝗨𝗔𝗠</a>  - “𝐖𝐡𝐞𝐧 𝐈 𝐝𝐢𝐞, 𝐈 𝐰𝐚𝐧𝐭 𝐭𝐨 𝐛𝐞𝐜𝐨𝐦𝐞 𝐚 𝐬𝐭𝐚𝐫 𝐢𝐧 𝐭𝐡𝐞 𝐬𝐤𝐲!”
+Ruam is a male who died in his mid-20s in the 1970s. An aspiring pilot whose dreams were doomed to fail.
+              <p align="right">
+                <img width="200" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/04d1d97d-d241-4c40-89ec-d066718c7206" alt = ![pony-town-Stay with me-sit-blinking-padded-4x]>
+                <p align="right">
+                ꒰CHII꒱ <a href="https://docs.google.com/document/d/1-Oqos7DqOuc_UnCEXp_42Fmtg9___SMgcEzWeB77ntM/edit?usp=sharing" target="[M]">𝗔𝗭𝗥𝗜𝗔</a>-  "𝐲𝐨𝐮'𝐯𝐞 𝐛𝐞𝐞𝐧 𝐝𝐨𝐢𝐧𝐠 𝐭𝐡𝐢𝐬 𝐛𝐞𝐡𝐢𝐧𝐝 𝐦𝐲 𝐛𝐚𝐜𝐤!? 𝐃𝐨 𝐲𝐨𝐮 𝐡𝐚𝐯𝐞 𝐚𝐧𝐲 𝐢𝐝𝐞𝐚 𝐡𝐨𝐰 𝐝𝐢𝐬𝐠𝐮𝐬𝐭𝐢𝐧𝐠 𝐭𝐡𝐢𝐬 𝐢𝐬? 𝐈-𝐈'𝐯𝐞 𝐛𝐞𝐞𝐧 𝐤𝐢𝐬𝐬𝐢𝐧𝐠 𝐲𝐨𝐮𝐫 𝐥𝐢𝐩𝐬, 𝐨𝐧𝐥𝐲 𝐭𝐨 𝐝𝐢𝐬𝐜𝐨𝐯𝐞𝐫 𝐭𝐡𝐞𝐲'𝐫𝐞 𝐭𝐚𝐢𝐧𝐭𝐞𝐝 𝐰𝐢𝐭𝐡 𝐡𝐮𝐦𝐚𝐧 𝐛𝐥𝐨𝐨𝐝?" A Journalist Female who took interest of Hartfelt RadioPotCast and took an unexpected turn 
                  <p align="center"> 
                    ꒰VETHER꒱ <a href="https://docs.google.com/document/d/1D_cM4VduUKhaafYtU5gZnE5b7MhA4awqe_dnRZwUW0w/edit?usp=sharing" target="[M]">𝗖𝗔𝗠𝗔𝗭𝗢𝗧𝗭</a>- Sassy fashion designer 🧵🐑
                   <p align="center"> 
