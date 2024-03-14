@@ -92,20 +92,21 @@ Ruam is a male who died in his mid-20s in the 1970s. An aspiring pilot whose dre
                 <p align="center">
                 ꒰CHII꒱ <a href="https://docs.google.com/document/d/1-Oqos7DqOuc_UnCEXp_42Fmtg9___SMgcEzWeB77ntM/edit?usp=sharing" target="[M]">𝗔𝗭𝗥𝗜𝗔</a>-  "𝐲𝐨𝐮'𝐯𝐞 𝐛𝐞𝐞𝐧 𝐝𝐨𝐢𝐧𝐠 𝐭𝐡𝐢𝐬 𝐛𝐞𝐡𝐢𝐧𝐝 𝐦𝐲 𝐛𝐚𝐜𝐤!? 𝐃𝐨 𝐲𝐨𝐮 𝐡𝐚𝐯𝐞 𝐚𝐧𝐲 𝐢𝐝𝐞𝐚 𝐡𝐨𝐰 𝐝𝐢𝐬𝐠𝐮𝐬𝐭𝐢𝐧𝐠 𝐭𝐡𝐢𝐬 𝐢𝐬? 𝐈-𝐈'𝐯𝐞 𝐛𝐞𝐞𝐧 𝐤𝐢𝐬𝐬𝐢𝐧𝐠 𝐲𝐨𝐮𝐫 𝐥𝐢𝐩𝐬, 𝐨𝐧𝐥𝐲 𝐭𝐨 𝐝𝐢𝐬𝐜𝐨𝐯𝐞𝐫 𝐭𝐡𝐞𝐲'𝐫𝐞 𝐭𝐚𝐢𝐧𝐭𝐞𝐝 𝐰𝐢𝐭𝐡 𝐡𝐮𝐦𝐚𝐧 𝐛𝐥𝐨𝐨𝐝?" A Journalist Female who took interest of Hartfelt RadioPotCast and took an unexpected turn. Demon Bell
                  <p align="right"> 
-                   ꒰VETHER꒱<a href="https://docs.google.com/document/d/1D_cM4VduUKhaafYtU5gZnE5b7MhA4awqe_dnRZwUW0w/edit?usp=sharing" target="[M]">𝗖𝗔𝗠𝗔𝗭𝗢𝗧𝗭</a> 
                      <img width="165" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/2acc5162-8eaf-41bf-a6b0-6b26ba58055b" alt= ![pony-town-Camazotz____HH_OC-lie-blinking-padded-4x]> 
+                     <p align="right"> 
+                        An envious man stuck in his childhood. Fashion Desginer - "𝐈 𝐚𝐦 𝐲𝐨𝐮𝐫 𝐜𝐡𝐢𝐥𝐝, 𝐚 𝐜𝐡𝐢𝐥𝐝 𝐲𝐨𝐮 𝐭𝐨𝐬𝐬𝐞𝐝 𝐢𝐧𝐭𝐨 𝐭𝐡𝐞 𝐭𝐫𝐚𝐬𝐡 𝐥𝐢𝐤𝐞 𝐠𝐚𝐫𝐛𝐚𝐠𝐞! 𝐈𝐟 𝐨𝐧𝐥𝐲 𝐲𝐨𝐮 𝐰𝐨𝐮𝐥𝐝 𝐭𝐫𝐞𝐚𝐭 𝐦𝐞 𝐟𝐚𝐢𝐫𝐥𝐲 𝐲𝐨𝐮 𝐰𝐨𝐮𝐥𝐝𝐧'𝐭 𝐛𝐞 𝐥𝐚𝐲𝐢𝐧𝐠 𝐢𝐧 𝐦𝐲 𝐡𝐚𝐧𝐝 𝐜𝐨𝐯𝐞𝐫𝐞𝐝 𝐰𝐢𝐭𝐡 𝐛𝐥𝐨𝐨𝐝!" <a href="https://docs.google.com/document/d/1D_cM4VduUKhaafYtU5gZnE5b7MhA4awqe_dnRZwUW0w/edit?usp=sharing" target="[M]">𝗖𝗔𝗠𝗔𝗭𝗢𝗧𝗭</a> ꒰VETHER꒱
                   <p align="center"> 
                      <img width="175" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/cf7b251a-2a7b-428a-a6ca-9ba11cf49a72" alt =  ![pony-town-Alpine___hh_oc-yawn-blinking-padded-4x]>
                      <p align="center"> 
-                    ꒰AOKI꒱𝗔𝗟𝗣𝗜𝗡𝗘 - Ravage Stealer 🦊💲
+                    ꒰AOKI꒱𝗔𝗟𝗣𝗜𝗡𝗘 -"𝐎𝐡? 𝐎𝐨𝐨𝐩𝐢𝐞𝐬 𝐌𝐛 𝐈 𝐬𝐭𝐨𝐥𝐞 𝐲𝐨𝐮𝐫 𝐰𝐚𝐥𝐥𝐞𝐭" fox laugh . A Fox young man who stole Ruam wallet with the noticed of Azria, Other than that He has a dark past before in hell, Long Ears and Fast A Ravage Stealer
                     <p align="Left"> 
                         <img width="166" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/3eae4949-463e-4468-b57b-abd2ce7d3e72" alt = ![pony-town-heavens_a_lie-kiss-blinking-4x]
                            <p align="Left"> 
-                      ꒰REX꒱𝗡𝗘𝗭𝗥𝗜𝗢 - Death Haunt! 🖤🩸
+                      ꒰REX꒱𝗡𝗘𝗭𝗥𝗜𝗢 - "𝐀𝐮𝐠𝐡 𝐚𝐮𝐭𝐨𝐫𝐠𝐫𝐚𝐡 𝐛𝐲 𝐚𝐮𝐭𝐨𝐫𝐠𝐫𝐚𝐩𝐡 𝐡𝐨𝐰 𝐦𝐚𝐧𝐲 𝐦𝐨𝐫𝐞!?.. 𝐬𝐨 𝐬𝐭𝐫𝐞𝐬𝐬𝐟𝐮𝐥" A Model Female who serves as an 'Idol' from the late 90s and a Fallen Angel to continue her wild career. Death Haunt 
               <p align="center"> 
                   <img width="166" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/81894fb6-db1b-44d1-a7af-f0021b3f24f5" alt = ![pony-town-azel_offtab-happy-wink-blinking-padded-4x]>
                      <p align="center"> 
-                 ꒰KYU꒱𝗔𝗭𝗘𝗟- Souls Lives (Azria Older Brother)
+                 ꒰KYU꒱𝗔𝗭𝗘𝗟- "She's up there and im down here . ." Azria Older brother who fallen from hell, he was determined to find Azria killer only to become a killer himself. Souls Lives 
                  <p align="right"> 
                     <img width="160" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/391e5aa5-d826-4658-a13a-fb1737b95a8a" alt =![pony-town-@ ' -__ Maltius __ HH Oc-sit-blinking-padded-toy194-4x]>
                    <p align="right"> 
