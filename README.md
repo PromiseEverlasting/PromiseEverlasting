@@ -106,7 +106,7 @@ Ruam is a male who died in his mid-20s in the 1970s. An aspiring pilot whose dre
               <p align="center"> 
                   <img width="166" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/81894fb6-db1b-44d1-a7af-f0021b3f24f5" alt = ![pony-town-azel_offtab-happy-wink-blinking-padded-4x]>
                      <p align="center"> 
-                 ꒰KYU꒱𝗔𝗭𝗘𝗟- "She's up there and im down here . ." Azria Older brother who fallen from hell, he was determined to find Azria killer only to become a killer himself. Souls Lives 
+                 ꒰KYU꒱𝗔𝗭𝗘𝗟- "𝐒𝐡𝐞'𝐬 𝐮𝐩 𝐭𝐡𝐞𝐫𝐞 𝐚𝐧𝐝 𝐢𝐦 𝐝𝐨𝐰𝐧 𝐡𝐞𝐫𝐞 . ." Azria Older brother who fallen from hell, he was determined to find Azria killer only to become a killer himself. Souls Lives 
                  <p align="right"> 
                     <img width="160" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/391e5aa5-d826-4658-a13a-fb1737b95a8a" alt =![pony-town-@ ' -__ Maltius __ HH Oc-sit-blinking-padded-toy194-4x]>
                    <p align="right"> 
