@@ -107,7 +107,7 @@ Ruam is a male who died in his mid-20s in the 1970s. An aspiring pilot whose dre
                      <p align="center"> 
                  ꒰KYU꒱𝗔𝗭𝗘𝗟- Souls Lives (Azria Older Brother)
                  <p align="right"> 
-                    <img width="166" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/391e5aa5-d826-4658-a13a-fb1737b95a8a" alt =![pony-town-@ ' -__ Maltius __ HH Oc-sit-blinking-padded-toy194-4x]>
+                    <img width="160" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/391e5aa5-d826-4658-a13a-fb1737b95a8a" alt =![pony-town-@ ' -__ Maltius __ HH Oc-sit-blinking-padded-toy194-4x]>
                    <p align="right"> 
                A man who loved the violin and a playful desire to help children going to an unexpected change of heart. Father's Love  "𝐘𝐨𝐮 𝐫𝐞𝐦𝐢𝐧𝐝 𝐦𝐞 𝐚 𝐥𝐨𝐭 𝐨𝐟 𝐦𝐲 𝐝𝐚𝐮𝐠𝐡𝐭𝐞𝐫 𝐰𝐡𝐞𝐧 𝐬𝐡𝐞 𝐰𝐚𝐬 𝐰𝐢𝐭𝐡 𝐦𝐞 𝐛𝐚𝐜𝐤 𝐭𝐡𝐞𝐧.. 𝐡𝐞𝐡 𝐲𝐨𝐮 𝐞𝐯𝐞𝐧 𝐬𝐦𝐢𝐥𝐞 𝐥𝐢𝐤𝐞 𝐡𝐞𝐫." - 𝗠𝗔𝗟𝗧𝗜𝗨𝗦 ꒰MIKO꒱
                        <p align="center"> 
