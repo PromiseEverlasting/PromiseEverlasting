@@ -105,7 +105,8 @@ Ruam is a male who died in his mid-20s in the 1970s. An aspiring pilot whose dre
                            <p align="Left"> 
                       ꒰REX꒱𝗡𝗘𝗭𝗥𝗜𝗢 - "𝐀𝐮𝐠𝐡 𝐚𝐮𝐭𝐨𝐫𝐠𝐫𝐚𝐡 𝐛𝐲 𝐚𝐮𝐭𝐨𝐫𝐠𝐫𝐚𝐩𝐡 𝐡𝐨𝐰 𝐦𝐚𝐧𝐲 𝐦𝐨𝐫𝐞!?.. 𝐬𝐨 𝐬𝐭𝐫𝐞𝐬𝐬𝐟𝐮𝐥" A Model Female who serves as an 'Idol' from the late 90s and a Fallen Angel to continue her wild career. Death Haunt 
               <p align="center"> 
-                  <img width="166" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/81894fb6-db1b-44d1-a7af-f0021b3f24f5" alt = ![pony-town-azel_offtab-happy-wink-blinking-padded-4x]>
+                  <img width="159" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/eb18793c-7768-4630-aea6-9a83fffd41a0" alt = ![pony-town-_-_azel-nod-blinking-padded-4x_1]>
+                  <img width="170" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/81894fb6-db1b-44d1-a7af-f0021b3f24f5" alt = ![pony-town-azel_offtab-happy-wink-blinking-padded-4x]>
                      <p align="center"> 
                  ꒰KYU꒱𝗔𝗭𝗘𝗟-"𝐢 𝐜𝐚𝐧𝐭 𝐫𝐞𝐦𝐞𝐦𝐛𝐞𝐫 𝐦𝐲 𝐜𝐡𝐢𝐥𝐝𝐡𝐨𝐨𝐝.. 𝐰𝐡𝐨 𝐢 𝐰𝐚𝐬 𝐢𝐧 𝐭𝐡𝐞 𝐩𝐚𝐬𝐭.. 𝐚𝐥𝐥 𝐟𝐨𝐫𝐠𝐨𝐭𝐭𝐞𝐧." Azria's older brother who had went to hell. He is determined to find Azria's killer hence and became a private investigator, but only to become a killer himself. Souls Lives
                  <p align="right"> 
