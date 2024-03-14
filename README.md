@@ -88,6 +88,7 @@ if im alone you dont have ask me for cuddles just go right ahead
           <img width="150" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/8617c9ca-9dcf-48c8-bdd1-a6adcb10ddba" alt = ![pony-town-Ruam 🩵⚠ ! !-boop-sit-blinking-padded-4x]>  ꒰NOX꒱ <a href="https://docs.google.com/document/d/1KgC4degNJ87ImVYSY8NYqLBsmvis_JKtpcq4ZtNwvos/edit?usp=sharing" target="[M]">𝗥𝗨𝗔𝗠</a>  - “𝐖𝐡𝐞𝐧 𝐈 𝐝𝐢𝐞, 𝐈 𝐰𝐚𝐧𝐭 𝐭𝐨 𝐛𝐞𝐜𝐨𝐦𝐞 𝐚 𝐬𝐭𝐚𝐫 𝐢𝐧 𝐭𝐡𝐞 𝐬𝐤𝐲!”
 Ruam is a male who died in his mid-20s in the 1970s. An aspiring pilot whose dreams were doomed to fail. Star Pilot
               <p align="center">
+                  <img width="150" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/d99e787d-9938-4825-871d-c898c7f08e3d" alt= ![pony-town-#1 Hartfelt hater ! Azria-sit-blinking-padded-ponyplush-4x (1)>
                 <img width="150" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/04d1d97d-d241-4c40-89ec-d066718c7206" alt = ![pony-town-Stay with me-sit-blinking-padded-4x]>
                 <p align="center">
                 ꒰CHII꒱ <a href="https://docs.google.com/document/d/1-Oqos7DqOuc_UnCEXp_42Fmtg9___SMgcEzWeB77ntM/edit?usp=sharing" target="[M]">𝗔𝗭𝗥𝗜𝗔</a>-  "𝐲𝐨𝐮'𝐯𝐞 𝐛𝐞𝐞𝐧 𝐝𝐨𝐢𝐧𝐠 𝐭𝐡𝐢𝐬 𝐛𝐞𝐡𝐢𝐧𝐝 𝐦𝐲 𝐛𝐚𝐜𝐤!? 𝐃𝐨 𝐲𝐨𝐮 𝐡𝐚𝐯𝐞 𝐚𝐧𝐲 𝐢𝐝𝐞𝐚 𝐡𝐨𝐰 𝐝𝐢𝐬𝐠𝐮𝐬𝐭𝐢𝐧𝐠 𝐭𝐡𝐢𝐬 𝐢𝐬? 𝐈-𝐈'𝐯𝐞 𝐛𝐞𝐞𝐧 𝐤𝐢𝐬𝐬𝐢𝐧𝐠 𝐲𝐨𝐮𝐫 𝐥𝐢𝐩𝐬, 𝐨𝐧𝐥𝐲 𝐭𝐨 𝐝𝐢𝐬𝐜𝐨𝐯𝐞𝐫 𝐭𝐡𝐞𝐲'𝐫𝐞 𝐭𝐚𝐢𝐧𝐭𝐞𝐝 𝐰𝐢𝐭𝐡 𝐡𝐮𝐦𝐚𝐧 𝐛𝐥𝐨𝐨𝐝?" A Journalist Female who took interest of Hartfelt RadioPotCast and took an unexpected turn. Demon Bell
@@ -106,7 +107,7 @@ Ruam is a male who died in his mid-20s in the 1970s. An aspiring pilot whose dre
               <p align="center"> 
                   <img width="166" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/81894fb6-db1b-44d1-a7af-f0021b3f24f5" alt = ![pony-town-azel_offtab-happy-wink-blinking-padded-4x]>
                      <p align="center"> 
-                 ꒰KYU꒱𝗔𝗭𝗘𝗟- "𝐒𝐡𝐞'𝐬 𝐮𝐩 𝐭𝐡𝐞𝐫𝐞 𝐚𝐧𝐝 𝐢𝐦 𝐝𝐨𝐰𝐧 𝐡𝐞𝐫𝐞 . ." Azria Older brother who fallen from hell, he was determined to find Azria killer only to become a killer himself. Souls Lives 
+                 ꒰KYU꒱𝗔𝗭𝗘𝗟- "𝐒𝐡𝐞'𝐬 𝐮𝐩 𝐭𝐡𝐞𝐫𝐞 𝐚𝐧𝐝 𝐢𝐦 𝐝𝐨𝐰𝐧 𝐡𝐞𝐫𝐞 . ." Azria's older brother who had went to hell. He is determined to find Azria's killer hence he went down to Earth and became a private investigator, but only to become a killer himself. Souls Lives
                  <p align="right"> 
                     <img width="160" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/391e5aa5-d826-4658-a13a-fb1737b95a8a" alt =![pony-town-@ ' -__ Maltius __ HH Oc-sit-blinking-padded-toy194-4x]>
                    <p align="right"> 
