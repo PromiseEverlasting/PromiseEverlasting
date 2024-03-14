@@ -86,11 +86,11 @@ if im alone you dont have ask me for cuddles just go right ahead
       ꒰ Art by KNOX ! ! ꒱
         <p align="left">
           <img width="150" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/8617c9ca-9dcf-48c8-bdd1-a6adcb10ddba" alt = ![pony-town-Ruam 🩵⚠ ! !-boop-sit-blinking-padded-4x]>  ꒰NOX꒱ <a href="https://docs.google.com/document/d/1KgC4degNJ87ImVYSY8NYqLBsmvis_JKtpcq4ZtNwvos/edit?usp=sharing" target="[M]">𝗥𝗨𝗔𝗠</a>  - “𝐖𝐡𝐞𝐧 𝐈 𝐝𝐢𝐞, 𝐈 𝐰𝐚𝐧𝐭 𝐭𝐨 𝐛𝐞𝐜𝐨𝐦𝐞 𝐚 𝐬𝐭𝐚𝐫 𝐢𝐧 𝐭𝐡𝐞 𝐬𝐤𝐲!”
-Ruam is a male who died in his mid-20s in the 1970s. An aspiring pilot whose dreams were doomed to fail.
+Ruam is a male who died in his mid-20s in the 1970s. An aspiring pilot whose dreams were doomed to fail. Star Pilot
               <p align="center">
                 <img width="150" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/04d1d97d-d241-4c40-89ec-d066718c7206" alt = ![pony-town-Stay with me-sit-blinking-padded-4x]>
                 <p align="center">
-                ꒰CHII꒱ <a href="https://docs.google.com/document/d/1-Oqos7DqOuc_UnCEXp_42Fmtg9___SMgcEzWeB77ntM/edit?usp=sharing" target="[M]">𝗔𝗭𝗥𝗜𝗔</a>-  "𝐲𝐨𝐮'𝐯𝐞 𝐛𝐞𝐞𝐧 𝐝𝐨𝐢𝐧𝐠 𝐭𝐡𝐢𝐬 𝐛𝐞𝐡𝐢𝐧𝐝 𝐦𝐲 𝐛𝐚𝐜𝐤!? 𝐃𝐨 𝐲𝐨𝐮 𝐡𝐚𝐯𝐞 𝐚𝐧𝐲 𝐢𝐝𝐞𝐚 𝐡𝐨𝐰 𝐝𝐢𝐬𝐠𝐮𝐬𝐭𝐢𝐧𝐠 𝐭𝐡𝐢𝐬 𝐢𝐬? 𝐈-𝐈'𝐯𝐞 𝐛𝐞𝐞𝐧 𝐤𝐢𝐬𝐬𝐢𝐧𝐠 𝐲𝐨𝐮𝐫 𝐥𝐢𝐩𝐬, 𝐨𝐧𝐥𝐲 𝐭𝐨 𝐝𝐢𝐬𝐜𝐨𝐯𝐞𝐫 𝐭𝐡𝐞𝐲'𝐫𝐞 𝐭𝐚𝐢𝐧𝐭𝐞𝐝 𝐰𝐢𝐭𝐡 𝐡𝐮𝐦𝐚𝐧 𝐛𝐥𝐨𝐨𝐝?" A Journalist Female who took interest of Hartfelt RadioPotCast and took an unexpected turn 
+                ꒰CHII꒱ <a href="https://docs.google.com/document/d/1-Oqos7DqOuc_UnCEXp_42Fmtg9___SMgcEzWeB77ntM/edit?usp=sharing" target="[M]">𝗔𝗭𝗥𝗜𝗔</a>-  "𝐲𝐨𝐮'𝐯𝐞 𝐛𝐞𝐞𝐧 𝐝𝐨𝐢𝐧𝐠 𝐭𝐡𝐢𝐬 𝐛𝐞𝐡𝐢𝐧𝐝 𝐦𝐲 𝐛𝐚𝐜𝐤!? 𝐃𝐨 𝐲𝐨𝐮 𝐡𝐚𝐯𝐞 𝐚𝐧𝐲 𝐢𝐝𝐞𝐚 𝐡𝐨𝐰 𝐝𝐢𝐬𝐠𝐮𝐬𝐭𝐢𝐧𝐠 𝐭𝐡𝐢𝐬 𝐢𝐬? 𝐈-𝐈'𝐯𝐞 𝐛𝐞𝐞𝐧 𝐤𝐢𝐬𝐬𝐢𝐧𝐠 𝐲𝐨𝐮𝐫 𝐥𝐢𝐩𝐬, 𝐨𝐧𝐥𝐲 𝐭𝐨 𝐝𝐢𝐬𝐜𝐨𝐯𝐞𝐫 𝐭𝐡𝐞𝐲'𝐫𝐞 𝐭𝐚𝐢𝐧𝐭𝐞𝐝 𝐰𝐢𝐭𝐡 𝐡𝐮𝐦𝐚𝐧 𝐛𝐥𝐨𝐨𝐝?" A Journalist Female who took interest of Hartfelt RadioPotCast and took an unexpected turn. Demon Bell
                  <p align="right"> 
                    ꒰VETHER꒱<a href="https://docs.google.com/document/d/1D_cM4VduUKhaafYtU5gZnE5b7MhA4awqe_dnRZwUW0w/edit?usp=sharing" target="[M]">𝗖𝗔𝗠𝗔𝗭𝗢𝗧𝗭</a> 
                      <img width="165" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/2acc5162-8eaf-41bf-a6b0-6b26ba58055b" alt= ![pony-town-Camazotz____HH_OC-lie-blinking-padded-4x]> 
@@ -107,8 +107,10 @@ Ruam is a male who died in his mid-20s in the 1970s. An aspiring pilot whose dre
                      <p align="center"> 
                  ꒰KYU꒱𝗔𝗭𝗘𝗟- Souls Lives (Azria Older Brother)
                  <p align="right"> 
-               ꒰MIKO꒱𝗠𝗔𝗟𝗧𝗜𝗨𝗦 - Father's Love 💞🎈
-                   <p align="center"> 
+                    <img width="166" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/391e5aa5-d826-4658-a13a-fb1737b95a8a" alt =![pony-town-@ ' -__ Maltius __ HH Oc-sit-blinking-padded-toy194-4x]>
+                   <p align="right"> 
+               A man who loved the violin and a playful desire to help children going to an unexpected change of heart. Father's Love  "𝐘𝐨𝐮 𝐫𝐞𝐦𝐢𝐧𝐝 𝐦𝐞 𝐚 𝐥𝐨𝐭 𝐨𝐟 𝐦𝐲 𝐝𝐚𝐮𝐠𝐡𝐭𝐞𝐫 𝐰𝐡𝐞𝐧 𝐬𝐡𝐞 𝐰𝐚𝐬 𝐰𝐢𝐭𝐡 𝐦𝐞 𝐛𝐚𝐜𝐤 𝐭𝐡𝐞𝐧.. 𝐡𝐞𝐡 𝐲𝐨𝐮 𝐞𝐯𝐞𝐧 𝐬𝐦𝐢𝐥𝐞 𝐥𝐢𝐤𝐞 𝐡𝐞𝐫." - 𝗠𝗔𝗟𝗧𝗜𝗨𝗦 ꒰MIKO꒱
+                       <p align="center"> 
                      𝗗𝗢 𝗡𝗢𝗧 𝗧𝗔𝗞𝗘 𝗜𝗡𝗦𝗣𝗢/𝗖𝗢𝗣𝗬
                 <p align="center"> 
  <img width="200" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/74013add-5987-4094-ad1a-279e4976d44e" alt = ![pony-town-90-sit-blinking-name-padded-ponyplush-4x]> 
