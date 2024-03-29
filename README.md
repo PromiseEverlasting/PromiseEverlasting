@@ -116,7 +116,7 @@ Ruam is a male who died in his mid-20s in the 1970s. An aspiring pilot whose dre
                        <p align="center"> 
                      𝗗𝗢 𝗡𝗢𝗧 𝗧𝗔𝗞𝗘 𝗜𝗡𝗦𝗣𝗢/𝗖𝗢𝗣𝗬
                 <p align="center"> 
- <img width="200" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/74013add-5987-4094-ad1a-279e4976d44e" alt = ![pony-town-90-sit-blinking-name-padded-ponyplush-4x]> 
+ <img width="200" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/b775b1c8-e257-44e7-a85a-8d5a8e9527ed" alt = ![pony-town-90-sit-blinking-name-padded-4x]>
       <img width="200" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/1cb900f7-522f-4341-b8e2-7421777b29c7" alt =![pony-town- romance -sit-blinking-name-padded-4x]> 
         <p align="right"> 
           " I hate you so much but. . ."
