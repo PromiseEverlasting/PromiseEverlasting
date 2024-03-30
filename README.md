@@ -71,7 +71,7 @@ if im alone you dont have ask me for cuddles just go right ahead
  <p align="center"> 
  if you are my friend/friendlist you can cuddle me no need to ask even im with my other friends 
     <p align="center"> 
-Cas┊Suki┊Kero/kiki┊Angel┊Mist┊Mir┊Mel┊Sun and Moon┊Mr Maevwa/sharky┊Leonar┊Nana┊Nova┊Meesha┊Cele┊July┊Azeralla┊Yuki┊Sparky┊Mai┊Maci┊Raze┊Key┊Luna! !
+Cas┊Suki┊Kero/kiki┊Angel┊Mist┊Mir┊Mel┊Sun and Moon┊Mr Maevwa/sharky┊Leonar┊Nana┊Nova┊Meesha┊Cele┊July┊Azeralla┊Yuki┊Sparky┊Mai┊Maci┊Raze┊Key┊Luna┊Cas┊Auv ! !
  </p>
 <p align="center"> 
 𝗶 𝗹𝗼𝘃𝗲 𝗺𝗮𝗸𝗶𝗻𝗴 𝗳𝗿𝗶𝗲𝗻𝗱𝘀 
