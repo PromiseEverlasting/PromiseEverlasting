@@ -29,8 +29,7 @@ His comments found their way to the sacred garden
   <p align="center"> 
   ———♡ "𝙇𝙚𝙩 𝙢𝙚 𝙨𝙞𝙣𝙜 𝙖 𝙨𝙤𝙣𝙜 𝙛𝙤𝙧 𝙢𝙮 𝙗𝙚𝙡𝙤𝙫𝙚𝙙 𝘼𝙧𝙩𝙝𝙞𝙖"
      <p align="center"> 
-         <p align="center"> 
-˚ʚ♡ɞ˚    
+<img width="315" src= "https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/c766e6e6-6082-4af9-9528-416f9cba270c" alt = ![IMG_20240417_001046]>
         </p>
              <p align="center"> 
              MAX - STUPID IN LOVE 
@@ -130,12 +129,6 @@ Ruam is a male who died in his mid-20s in the 1970s. An aspiring pilot whose dre
             " Not even for a moment in my mind 𝗔𝗹𝗮𝘀𝘁𝗼𝗿 "
               <p align="left">
                 " we are long gone my dear, 𝗔𝘇𝗿𝗶𝗮 "
-    <p align="center"> 
-                    ✿
-                  <p align="right"> 
-              "𝘩𝘰𝘸 𝘤𝘰𝘶𝘭𝘥 𝘺𝘰𝘶 𝘣𝘦 𝘴𝘰 𝘳𝘦𝘤𝘬𝘭𝘦𝘴𝘴 𝘸𝘪𝘵𝘩 𝘮𝘺 𝗵𝗲𝗮𝗿𝘁?"
-                     <p align="left">
-                       "𝘵𝘩𝘳𝘰𝘸 𝘵𝘩𝘢𝘵 𝘳𝘪𝘯𝘨 𝘣𝘦𝘧𝘰𝘳𝘦 𝘪𝘵𝘴 𝘵𝘰𝘰 𝘭𝘢𝘵𝘦 . ."
 <p align="center"> 
               𝙏𝙞𝙢𝙚 𝘪𝘴 
 r̶i̶g̶h̶t̶ 𝘺𝘰𝘶𝘳 ᴘᴇʀꜰᴜᴍᴇ , 𝐟𝐢𝐥𝐥𝐬 𝘮𝘺 𝐡𝐞𝐚𝐝
