@@ -29,7 +29,7 @@ His comments found their way to the sacred garden
   <p align="center"> 
   ———♡ "𝙇𝙚𝙩 𝙢𝙚 𝙨𝙞𝙣𝙜 𝙖 𝙨𝙤𝙣𝙜 𝙛𝙤𝙧 𝙢𝙮 𝙗𝙚𝙡𝙤𝙫𝙚𝙙 𝘼𝙧𝙩𝙝𝙞𝙖"
      <p align="center"> 
-<img width="315" src= "https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/c766e6e6-6082-4af9-9528-416f9cba270c" alt = ![IMG_20240417_001046]>
+<img width="315" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/d875caad-7ce8-4b6e-9e92-6d649ccbde4e" alt =![IMG_20240417_003950]>
         </p>
              <p align="center"> 
              MAX - STUPID IN LOVE 
