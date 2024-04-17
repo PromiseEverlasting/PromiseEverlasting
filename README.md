@@ -29,7 +29,7 @@ His comments found their way to the sacred garden
 <img width="315" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/d875caad-7ce8-4b6e-9e92-6d649ccbde4e" alt =![IMG_20240417_003950]>
         </p>
   <p align="center"> 
-    <img width="250" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/37227a08-eddf-4377-987e-13e188660a51" alt = ![pony-town-♫ 🌷Forever devout-sit-blinking-padded-4x]> <img width="250" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/e04074c5-0e95-4a81-ba7e-999c5a2c1151" alt=  ![pony-town-can we become we_-sit-blinking-padded-ponyplush-4x]>
+    <img width="200" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/37227a08-eddf-4377-987e-13e188660a51" alt = ![pony-town-♫ 🌷Forever devout-sit-blinking-padded-4x]> <img width="200" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/e04074c5-0e95-4a81-ba7e-999c5a2c1151" alt=  ![pony-town-can we become we_-sit-blinking-padded-ponyplush-4x]>
      <p align="left"> 
     Can i become 𝙮𝙤𝙪𝙧𝙨, commbining our dreams without keeping score?, always together but never bored
      <p align="right"> 
