@@ -26,7 +26,7 @@ His comments found their way to the sacred garden
   <p align="center"> 
   ———♡ "𝙇𝙚𝙩 𝙢𝙚 𝙨𝙞𝙣𝙜 𝙖 𝙨𝙤𝙣𝙜 𝙛𝙤𝙧 𝙢𝙮 𝙗𝙚𝙡𝙤𝙫𝙚𝙙 𝘼𝙧𝙩𝙝𝙞𝙖"
      <p align="center"> 
-<img width="315" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/d875caad-7ce8-4b6e-9e92-6d649ccbde4e" alt =![IMG_20240417_003950]>
+<img width="315" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/76c61137-249c-4f74-82fb-c5cf2e58c3d7" alt = ![Untitled22_20240417171106]>
         </p>
   <p align="center"> 
     <img width="200" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/37227a08-eddf-4377-987e-13e188660a51" alt = ![pony-town-♫ 🌷Forever devout-sit-blinking-padded-4x]> <img width="200" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/e04074c5-0e95-4a81-ba7e-999c5a2c1151" alt=  ![pony-town-can we become we_-sit-blinking-padded-ponyplush-4x]>
