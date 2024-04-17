@@ -18,9 +18,6 @@
     </p>
      <p align="center"> 
       <img width="115" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/810eace1-fc56-4f31-9380-a3f4fa850d03" alt = ![free_to_use___venti_pixel_icon___psd_by_doosio_devbfnz]>
-      </p>
-       <p align="center"> 
-      ˖⁺‧₊˚♬˚₊‧⁺˖
        </p>
         <p align="center"> 
 Barbatos created a tune by directing the winds to weave sounds into a melody. The beautiful sound of his voice seemed to vibrate the air itself as he started to sing. 
@@ -31,8 +28,23 @@ His comments found their way to the sacred garden
      <p align="center"> 
 <img width="315" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/d875caad-7ce8-4b6e-9e92-6d649ccbde4e" alt =![IMG_20240417_003950]>
         </p>
+  <p align="center"> 
+    <img width="250" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/37227a08-eddf-4377-987e-13e188660a51" alt = ![pony-town-♫ 🌷Forever devout-sit-blinking-padded-4x]> <img width="250" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/e04074c5-0e95-4a81-ba7e-999c5a2c1151" alt=  ![pony-town-can we become we_-sit-blinking-padded-ponyplush-4x]>
+     <p align="left"> 
+    Can i become 𝙮𝙤𝙪𝙧𝙨, commbining our dreams without keeping score?, always together but never bored
+     <p align="right"> 
+          No choice in the matter but this will never work without 𝙚𝙖𝙘𝙝 𝙩𝙤𝙜𝙚𝙩𝙝𝙚𝙧. . 
+        <p align="center"> 
+          Can we become we
+          start a new line on this family tree
+         𝐭𝐰𝐨 𝐡𝐞𝐚𝐫𝐭 𝐜𝐨𝐧𝐧𝐞𝐜𝐭𝐞𝐝 𝐛𝐲 𝐨𝐧𝐞 𝐛𝐞𝐚𝐭
+          𝘺𝘰𝘶𝘳 𝘩𝘢𝘯𝘥 𝘪𝘯 𝘮𝘺 𝘩𝘢𝘯𝘥
+          <p align="left"> 
+        𝐢 𝐜𝐨𝐮𝐥𝐝 𝐧𝐞𝐯𝐞𝐫 𝐜𝐡𝐨𝐨𝐬𝐞 𝐭𝐨 𝐥𝐨𝐯𝐞 𝐚𝐧𝐨𝐭𝐡𝐞𝐫
+              <p align="right"> 
+         𝙢𝙖𝙮𝙗𝙚 𝙤𝙣𝙚 𝙞 𝙘𝙖𝙣 𝙡𝙚𝙖𝙧𝙣 𝙩𝙤 𝙡𝙤𝙫𝙚 𝙮𝙤𝙪... 𝙩𝙤𝙤
              <p align="center"> 
-             MAX - STUPID IN LOVE 
+            JOURNEY TO BETHLEHEM - We Become We
                </p>
          <p align="center"> 
 <img width="300" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/4af92362-192e-49a8-9e04-b18d5564a834" alt = ![Screenshot_13]>
@@ -40,8 +52,6 @@ His comments found their way to the sacred garden
               Art by Nox (○｀ 3′○)
               <p align="center"> 
                <a href="https://myprimacyarthia.123guestbook.com/ target="[M]">GUEST BOOK ! !</a>  
-                <p align="center"> 
-                  I honestly forgot my gb exist :-:
           <p align="center">
         ≪ ◦  
          🟢 - Any int / bored / Silly 
