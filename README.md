@@ -6,9 +6,7 @@
   <p align="center">
 <video src= https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/20fee996-d805-4882-92c8-39e73e9a175a width=100 height=100/>
       <p align="center">
-    *ੈ✩‧₊˚
-          <p align="center">
-            ———♡ "𝙨𝙩𝙖𝙞𝙣𝙚𝙙 𝙧𝙚𝙙 𝙬𝙞𝙩𝙝 𝙝𝙚𝙧 𝙡𝙞𝙥𝙨."
+<video src= https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/f5fca0ed-5fde-4e8d-9bfa-e97af842c8b7 width=100 height=100/>
 </p>
     <p align="center">
       🍃
