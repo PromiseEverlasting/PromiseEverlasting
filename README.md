@@ -22,7 +22,7 @@ Barbatos created a tune by directing the winds to weave sounds into a melody. Th
 His comments found their way to the sacred garden
  </p>
   <p align="center"> 
-  ———♡ "𝙇𝙚𝙩 𝙢𝙚 𝙨𝙞𝙣𝙜 𝙖 𝙨𝙤𝙣𝙜 𝙛𝙤𝙧 𝙢𝙮 𝙗𝙚𝙡𝙤𝙫𝙚𝙙 𝘼𝙧𝙩𝙝𝙞𝙖"
+  ———♡ "𝙇𝙚𝙩 𝙢𝙚 𝙨𝙞𝙣𝙜 𝙖 𝙨𝙤𝙣𝙜 𝙛𝙤𝙧 𝙢𝙮 𝙗𝙚𝙡𝙤𝙫𝙚𝙙 <a href="https://docs.google.com/document/d/1wBdXhBk2eQbA9E1O0kaiypLBxa3pdEedJDQXsvM2sRs/edit?usp=sharing target="[M]">𝘼𝙧𝙩𝙝𝙞𝙖</a>"
      <p align="center"> 
 <img width="315" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/76c61137-249c-4f74-82fb-c5cf2e58c3d7" alt = ![Untitled22_20240417171106]>
         </p>
