@@ -7,6 +7,10 @@
 <video src=https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/3bf82fa7-9089-463c-b9ca-539c682127ff width=100 height=100/>
       <p align="center">
       @fe4rliicia ! !
+        <p align="center">
+        <video src=https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/bcffa180-578c-4957-8411-5b955d5f8f34  width=100 height=100/> 
+        <p align="center">
+          @𝓜𝓲𝓪
 </p>
     <p align="center">
       🍃
