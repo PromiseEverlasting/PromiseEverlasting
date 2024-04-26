@@ -53,8 +53,10 @@ His comments found their way to the sacred garden
             <p align="center">
               Art by Nox (○｀ 3′○)
               <p align="center"> 
-               <a href="https://myprimacyarthia.123guestbook.com/ target="[M]">GUEST BOOK ! !</a>  
+              <a href="https://myprimacyarthia.123guestbook.com/ target="[M]"> <strong>GUEST BOOK</strong></a>
           <p align="center">
+              <a href="https://en.pronouns.page/@TheStrawberryCHItarget="[M]"> <strong>Pronouns</strong></a>
+               <p align="center">
         ≪ ◦  
          🟢 - Any int / bored / Silly 
             . ❖ .
