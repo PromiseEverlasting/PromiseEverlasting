@@ -8,9 +8,9 @@
       <p align="center">
       @fe4rliicia ! !
         <p align="center">
-        <video src=https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/bcffa180-578c-4957-8411-5b955d5f8f34  width=100 height=100/> 
+        <video src=https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/1257de54-0a1d-4eb0-9de4-d55c37aaa740 width=100 height=100/> 
         <p align="center">
-          @𝓜𝓲𝓪
+          @zariamulti
 </p>
     <p align="center">
       🍃
