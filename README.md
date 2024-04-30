@@ -52,10 +52,6 @@ His comments found their way to the sacred garden
 <img width="300" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/4af92362-192e-49a8-9e04-b18d5564a834" alt = ![Screenshot_13]>
             <p align="center">
               Art by Nox (○｀ 3′○)
-              <p align="center"> 
-              <a href="https://myprimacyarthia.123guestbook.com/ target="[M]"> <strong>GUEST BOOK</strong></a>
-          <p align="center">
-              <a href="https://en.pronouns.page/@TheStrawberryCHItarget="[M]"> <strong>Pronouns</strong></a>
                <p align="center">
         ≪ ◦  
          🟢 - Any int / bored / Silly 
