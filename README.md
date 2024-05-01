@@ -54,6 +54,7 @@ His comments found their way to the sacred garden
               Art by Nox (○｀ 3′○)
                <p align="center">
                  <a href="https://myprimacyarthia.123guestbook.com/%20target=" target="[M]">GUEST BOOK</a>
+                  <p align="center">
         ≪ ◦  
          🟢 - Any int / bored / Silly 
             . ❖ .
