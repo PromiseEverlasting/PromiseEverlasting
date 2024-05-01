@@ -72,7 +72,7 @@ His comments found their way to the sacred garden
 ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
    </p>
 <p align="center">
-Dniucf - Miko ┊ Rex ┊ Kyu ┊ Aki ┊ Nox ┊ Vether ┊ Oya ┊ Vincenzo ┊ Cyber ┊ Lemoni ┊ Xeneless ┊ Auv ⋆˚
+Dniucf - Miko ┊ Rex ┊ Kyu ┊ Aki ┊ Nox ┊ Vether ┊ Oya ┊ Vincenzo ┊ Cyber ┊ Lemoni ┊ Xeneless ⋆˚
  </p>
 <p align="center"> 
   Dni - I wont be talking much but you can still int/whisp if any important    
