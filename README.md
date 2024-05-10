@@ -38,7 +38,7 @@ AND 𝘵𝘩𝘦𝘯 I 𝘨𝘰 𝘢𝘯𝘥
   <p align="center"> 
     🍓🍮
       <p align="center"> 
-    RadioBell
+    RadioBell /  Alaria
     <p align="center">
       🍃
     </p>
@@ -108,12 +108,6 @@ Cas┊Suki┊Kero/kiki┊Angel┊Mist┊Mir┊Mel┊Sun and Moon┊Mr Maevwa/sha
 <p align="center"> 
 ︵‿︵‿୨♡୧‿︵‿︵
 </p>
-         <p align="center"> 
-            Alaria
-            <p align="center"> 
-              LoveSick
-                <p align="center"> 
-                    </p>
      <p align="center">    
  ପ(๑•ᴗ•๑)ଓ 
 </p>
