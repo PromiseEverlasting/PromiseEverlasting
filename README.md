@@ -4,9 +4,9 @@
       <p align="center">
       @fe4rliicia ! !
         <p align="center">
-        <video src=https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/1257de54-0a1d-4eb0-9de4-d55c37aaa740 width=100 height=100/> 
+        <video src=https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/f85468dd-2646-4f5e-9319-911312cd307d width=100 height=100/> 
         <p align="center">
-          @zariamulti
+          @ichimxu
 </p>
  <p align="center">
   🩸
