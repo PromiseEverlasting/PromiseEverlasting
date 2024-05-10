@@ -1,8 +1,4 @@
 <hr>
-  <p align="center">
-<video src=https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/3bf82fa7-9089-463c-b9ca-539c682127ff width=100 height=100/>
-      <p align="center">
-      @fe4rliicia ! !
         <p align="center">
         <video src=https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/f85468dd-2646-4f5e-9319-911312cd307d width=100 height=100/> 
         <p align="center">
@@ -17,8 +13,8 @@
     <p align="center"> 
       ꒰ Art by KNOX ! ! ꒱
                 <p align="center"> 
- <img width="200" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/b775b1c8-e257-44e7-a85a-8d5a8e9527ed" alt = ![pony-town-90-sit-blinking-name-padded-4x]>
-      <img width="200" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/1cb900f7-522f-4341-b8e2-7421777b29c7" alt =![pony-town- romance -sit-blinking-name-padded-4x]> 
+ <img width="200" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/2fd2788d-217d-4620-bbe0-cd338000c378" alt = ![pony-town-wife eater 🥶🥶-happy-wink-blinking-name-padded-5x]>
+      <img width="186" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/0a1f28d2-6fba-47b2-8576-1503e7226d9a" alt = ![pony-town-the wife-boop-blinking-name-padded-4x(1)]>                
 <p align="center"> 
               𝙏𝙞𝙢𝙚 𝘪𝘴 
 r̶i̶g̶h̶t̶ 𝘺𝘰𝘶𝘳 ᴘᴇʀꜰᴜᴍᴇ , 𝐟𝐢𝐥𝐥𝐬 𝘮𝘺 𝐡𝐞𝐚𝐝
