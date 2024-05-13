@@ -30,6 +30,8 @@ AND 𝘵𝘩𝘦𝘯 I 𝘨𝘰 𝘢𝘯𝘥
 <p align="center">         
             ♡           
 <p align="center"> 
+       <a href="https://docs.google.com/document/d/1-Oqos7DqOuc_UnCEXp_42Fmtg9___SMgcEzWeB77ntM/edit?usp=sharing" target="[M]"<strong>DANCE DEVIL</strong></a>
+        <p align="center"> 
         <img width="150" src= https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/04ace718-5d7d-4a2e-b3b4-1921b9fb628d alt =![pony-town-silly murderur _O_-sit-blinking-padded-ponyplush-4x]>
                    <img width="160" src= https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/9c10437d-b020-4898-a5ed-662912fef0f2 alt= ![pony-town-smarter baby smarter-sit-blinking-padded-ponyplush-4x]>
 <p align="center"> 
