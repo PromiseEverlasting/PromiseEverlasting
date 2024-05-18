@@ -60,8 +60,6 @@ His comments found their way to the sacred garden
         </p>
   <p align="center"> 
     <img width="200" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/37227a08-eddf-4377-987e-13e188660a51" alt = ![pony-town-♫ 🌷Forever devout-sit-blinking-padded-4x]> <img width="200" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/e04074c5-0e95-4a81-ba7e-999c5a2c1151" alt=  ![pony-town-can we become we_-sit-blinking-padded-ponyplush-4x]>
-     <p align="left"> 
-            JOURNEY TO BETHLEHEM - We Become We
                </p>
          <p align="center"> 
 <img width="300" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/4af92362-192e-49a8-9e04-b18d5564a834" alt = ![Screenshot_13]>
