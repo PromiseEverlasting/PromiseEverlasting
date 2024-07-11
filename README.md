@@ -1,9 +1,22 @@
-## guess my type
+# Are we meant to be?
  <p align="center"> 
-              <img width="350" src= "https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/1a8295e0-2a87-49b2-8118-30feda174580" alt = ![d7c4eed4e3a85f6689f93ffe6255aacc]>
-   <img width="350" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/c9cc09ec-7029-4f2f-a3a7-ab8e6d05a75a" alt = ![81912a1293964c7695f36a7c125e4e9a]>
-    <img width="350" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/905fe99d-a4b2-4c7a-8a6b-75c2103214a7" alt = ![31d88a6264f643d8bafc072f9534f884]>
-    <img width="350" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/a2b5eb3f-ef6a-464d-9b7c-e8cafde6c4ea" alt= ![d4ae276e4243b0ca16973ede8c5a07be]>
-    <img width="350" src="https://github.com/PromiseEverlasting/PromiseEverlasting/assets/151441588/8503c96e-3da2-4dd2-9952-0dcbebd0d7bf" alt=![2e22f6c9a0bff3e8db115599c71e3608]>
-
-
+" The day I proposed to her, I got down on one knee, her eyes were radiantly bright than before , that moment i already 𝗸𝗻𝗲𝘄 𝗶𝘁 𝘄𝗮𝘀 𝗮 '𝘆𝗲𝘀'. " - ᴠᴇɴᴛɪ
+ </p>
+  <p align="center"> 
+OUR PROMISE S2 
+<p align="center"> 
+ idea:  07/01/2024 - Publishing at : after im done with the first book
+   <p align="center"> 
+Explanation / PLans for Session 2 
+     <p align="left"> 
+Why? : Our Promise first book is only her background story how she became the primacy / Preliminary 
+        <p align="left"> 
+will be more characters added? : depending how the plot goes maybe
+           <p align="left"> 
+What will happened? : I have been thinking this a lot after im done organizing the plot on the first book , After Arthia is the primacy yk yk her resposibility as the primacy increased A LOT of Godwork such as like answering the Gods questions or debates mostly be the judge , handling new things after the 'second heaven' was recreated etc ,its to the point it becomes overwhelming , she would constantly ignore her love ones INCLUDING venti or would rarely see him, of course for years Venti would tolerate that for her (understanding) but the more centries goes by , Arthia would start to doubt  "lose in faith"
+         <p align="center"> 
+thats why i titled the s2 book as " are we meant to be? "
+             <p align="center"> 
+the point of the plot is how they will reconnect to each other again, finding balance cause NOT all relationship has to be PERFECTLY DEVOTED, this is their up and downs 
+  <p align="center"> 
+  Character regression : Arthia will act more 𝙨𝙚𝙧𝙞𝙤𝙪𝙨 𝙖𝙣𝙙 𝙨𝙝𝙤𝙧𝙩 𝙩𝙚𝙧𝙢𝙥𝙚𝙧𝙚𝙙 caused of her stress and her 'overly try to be prefect' she has a reason I DID NOT MAKE HER EMO ON PURPOSE she will be have another character development during that with the help of venti :P ( Helping a lot can be very stressful speically if its 5 things on at the same time  or more,if you watch Steven Universe the future you'll get it)
