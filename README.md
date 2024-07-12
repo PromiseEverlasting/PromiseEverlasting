@@ -1,7 +1,5 @@
 # Are we meant to be?
- <p align="center"> 
-" The day I proposed to her, I got down on one knee, her eyes were radiantly bright than before , that moment i already 𝗸𝗻𝗲𝘄 𝗶𝘁 𝘄𝗮𝘀 𝗮 '𝘆𝗲𝘀'. " - ᴠᴇɴᴛɪ
- </p>
+
   <p align="center"> 
 OUR PROMISE S2 
 <p align="center"> 
