@@ -19,4 +19,6 @@ the point of the plot is how they will reconnect to each other again, finding ba
   <p align="center"> 
   Character regression : Arthia will act more 𝙨𝙚𝙧𝙞𝙤𝙪𝙨 𝙖𝙣𝙙 𝙨𝙝𝙤𝙧𝙩 𝙩𝙚𝙧𝙢𝙥𝙚𝙧𝙚𝙙 caused of her stress and her 'overly try to be prefect' those stress makes her weak emotionally and physically but will be having another character development during this s2 book with the help of venti love :P (if you watch Steven Universe the future you'll get it)
     <p align="center"> 
+      Unexpected Twist : Eutimia epic come back !!!!!! after not showing for 4000 years
+         <p align="center"> 
   bet they will copy this idea:// why cant i share something that doesnt get referenced/inspo
