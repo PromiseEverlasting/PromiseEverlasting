@@ -1,4 +1,3 @@
-<hr>
 <p align="center"
   WHEN SOMEONE PLAYS AAMON FOR ME!! ft.MIKO 
   </p>
