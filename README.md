@@ -1,9 +1,10 @@
+
 <p align="center">
 WHEN SOMEONE PLAYS AAMON FOR ME !! >> ft.MIKO
 <p align="center">
 <video src=https://github.com/user-attachments/assets/ef0e5ac5-c4ea-434e-b992-9e182f00dcd2 width=100 height=100/> 
 <p align="center">
-NOT A SHIP , i love to play floryn everytime Miko's the Core/Marksman , yan landi pa kasi
+<video src=https://github.com/user-attachments/assets/fe83c217-6f5c-48a1-ad3f-0a19d0ac1c8a width=100 height=100/> 
 <p align="center">
 <video src=https://github.com/user-attachments/assets/bb8bf7c1-9fca-4c74-9489-21436921f14b width=100 height=100/> 
   <p align="center">
