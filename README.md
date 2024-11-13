@@ -1,5 +1,3 @@
-<p align="center">
-  BIRTHDAY GIFTS YAYYY (ima make an art for myself soon its just simple:3) 
   <p align="center">
   <img width="300" src="https://github.com/user-attachments/assets/0cb27eed-3973-4296-bc26-5fa9841adf45" alt = ![Screenshot_14]>
   <p align="center">
