@@ -1,11 +1,3 @@
-  <p align="center">
-<img width="300" src="https://github.com/user-attachments/assets/2223276e-1b0e-4066-a7dd-311438a22501" alt = ![Screenshot_1]>
-    <p align="center">
-  <img width="300" src="https://github.com/user-attachments/assets/0cb27eed-3973-4296-bc26-5fa9841adf45" alt = ![Screenshot_14]>
-      <p align="center">
-  <img width="300" src="https://github.com/user-attachments/assets/475e752f-5c81-44ea-8ae4-316b3af735b9" alt= ![Screenshot_16]>
-         <p align="center">
-           Kenzo beating up seven ig...GREAT THNKS TO XENELESS,.........
 <p align="center">
 ft.MIKO , AOKI , VETHER
 <p align="center">
