@@ -1,4 +1,4 @@
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=PromiseEverlasting&color=800808&style=for-the-badge&label=RichMentally)
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=PromiseEverlasting&color=ffc98c&style=for-the-badge&label=RichMentally)
   <p align="center">
 <video src=https://github.com/user-attachments/assets/62640757-bb59-4b1e-8e4c-57afc74a9b33 width=100 height=100/> 
  <p align="center">
