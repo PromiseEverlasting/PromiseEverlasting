@@ -8,7 +8,7 @@
 <p align="center">
 <img width="180" src="https://i.pinimg.com/736x/83/bc/57/83bc575dad463e6b4f2bc99ed5367040.jpg">
   <p align="center">
-   levi x Giselle by milkcupie!! 
+   levi x Giselle from milkcupie!! 
 
 
 
