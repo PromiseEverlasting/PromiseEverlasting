@@ -2,7 +2,7 @@
 <p align="center">
 <img width="180" src="https://i.pinimg.com/736x/83/bc/57/83bc575dad463e6b4f2bc99ed5367040.jpg">
   <p align="center">
-   levi x Giselle from milkcupie! RoseBlade
+ RoseBlade - Giselle x Levi from Milkcupie
 <p align="center">
 <img width="180" src="https://github.com/user-attachments/assets/d724286a-9a32-4323-998a-4f45b72e534a" alt=![pony-town-🌹-sit-blinking-name-4x]>
 <img width="180" src="https://github.com/user-attachments/assets/ee13bf41-66fa-40e2-a2ad-5f60a3a8e02b" alt= ![pony-town-⚔-sit-blinking-name-4x]>
