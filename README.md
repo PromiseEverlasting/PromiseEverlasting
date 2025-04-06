@@ -8,8 +8,8 @@
    <p align="center">
 <img width="180" src="https://i.pinimg.com/736x/83/bc/57/83bc575dad463e6b4f2bc99ed5367040.jpg">
 <p align="center">
-<img width="180" src="https://github.com/user-attachments/assets/d724286a-9a32-4323-998a-4f45b72e534a" alt=![pony-town-🌹-sit-blinking-name-4x]>
-<img width="180" src="https://github.com/user-attachments/assets/ee13bf41-66fa-40e2-a2ad-5f60a3a8e02b" alt= ![pony-town-⚔-sit-blinking-name-4x]>
+<img width="180" src="https://github.com/user-attachments/assets/d80911e7-b61f-4dde-9067-14bf3102885b" alt=![pony-town-🌹-sit-blinking-name-4x (1)]>
+<img width="180" src="https://github.com/user-attachments/assets/02801d78-8514-44f5-b788-4959fccba428" alt=![pony-town-⚔-sit-blinking-name-4x (1)]>
 <p align="center">
 <p align="center">
 <video src=https://github.com/user-attachments/assets/bc41748b-47d2-4dd3-966e-dfc71f4b7a03 width=100 height=100/> 
