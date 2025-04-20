@@ -1,6 +1,6 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=PromiseEverlasting&color=c56161&style=for-the-badge&label=𝕏)
 <p align="center">
-   All art by @𝐱𝐳𝟒𝟐𝟕𝟖𝟐𝟏𝟑𝟕 𝐨𝐧 𝐗 (my new favorite artist 🥺🩷 and i now ship Queen x X cause of them they are so cute and both of them are my fav, it gives king x queen dynamic nonchalant husb x serious wife 😭)
+   All art by @𝐱𝐳𝟒𝟐𝟕𝟖𝟐𝟏𝟑𝟕 𝐨𝐧 𝐗 (my new favorite artist 🥺🩷 and i now ship Queen x X cause of them they are so cute and both of them are my fav, it gives nonchalant husb x serious wife 😭)
             <p align="center">
             <img width="400" src="https://github.com/user-attachments/assets/513f1b63-8887-45ac-8702-5491120d7642" alt= ![1000926738]>
         <p align="center">
