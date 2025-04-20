@@ -1,8 +1,12 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=PromiseEverlasting&color=c56161&style=for-the-badge&label=𝕏)
 <p align="center">
-            <img width="600" src="https://github.com/user-attachments/assets/ddb5b615-3f99-437f-8600-be4ae442ab84" alt=![Go8bVdaaUAAIVPl]>
-   <p align="center">
-   𝐀𝐫𝐭 𝐛𝐲 @𝐱𝐳𝟒𝟐𝟕𝟖𝟐𝟏𝟑𝟕 𝐨𝐧 𝐗
+   All art by @𝐱𝐳𝟒𝟐𝟕𝟖𝟐𝟏𝟑𝟕 𝐨𝐧 𝐗 (my new favorite artist 🥺🩷 and apparently i now ship Queen x X cause of them its so cute and both of them are my fav it feels like a divorce parent nonchalant x nonchalant)
+            <p align="center">
+            <img width="400" src="https://github.com/user-attachments/assets/513f1b63-8887-45ac-8702-5491120d7642" alt= ![1000926738]>
+        <p align="center">
+            <img width="400" src="https://github.com/user-attachments/assets/13ce73cc-f87e-4324-8a46-6d12ed63691b" alt=![1000926739]>
+                    <p align="center">
+            <img width="400" src="https://github.com/user-attachments/assets/ddb5b615-3f99-437f-8600-be4ae442ab84" alt=![Go8bVdaaUAAIVPl]>
    <p align="center">
 <video src="https://github.com/user-attachments/assets/ea81b5bd-384f-4dc8-b7d7-ca3a928a3a11" width=100 height=100/>
   <p align="center">
