@@ -1,5 +1,9 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=PromiseEverlasting&color=c56161&style=for-the-badge&label=𝕏)
    <p align="center">
+      <img width="300" src="https://github.com/user-attachments/assets/ac384620-f31c-4654-a1ab-e6d6e91ed6a6 alt=![Screenshot_2]>
+         <p align="center">
+      GIVE ME MORE OF THEM NOW
+        <p align="center">
             <img width="300" src="https://github.com/user-attachments/assets/a2219262-9c83-4699-8e76-4dc29b3a1729" alt=![Screenshot_5]> <img width="300" src="https://github.com/user-attachments/assets/8d4c9c30-46fa-4616-af09-3a284ced0382" alt=![GpRPIombYAMlphj]>
 <p align="center">
    THESE THREE ARE ALWAYS WINNING X and Queen havent even appeared yet and they are in the lead 
