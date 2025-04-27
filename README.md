@@ -1,4 +1,8 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=PromiseEverlasting&color=c56161&style=for-the-badge&label=𝕏)
+<p align="center">
+      <img width="500" src="https://github.com/user-attachments/assets/2400af95-7ae2-491f-a4f0-52b2806159d6" alt=![1000927156]>
+   <p align="center">
+      THIS CANT BE FR "X is everywhere" MEANT LITERAL someone already called out my X looks like Colonel Sanders THIS JUST MADE IT WORSE PMOO its so funny tho🙏
    <p align="center">
       <img width="500" src="https://github.com/user-attachments/assets/2d400fab-d518-45a7-b0ef-ebd2c12f9f75" alt= ![Screenshot_4]>
          <p align="center">
