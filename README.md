@@ -1,18 +1,6 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=PromiseEverlasting&color=c56161&style=for-the-badge&label=𝕏)
 <p align="center">
       successful brainwashed my friends into tbhx 😈😈
-<p align="center">
-      <img width="500" src="https://github.com/user-attachments/assets/2400af95-7ae2-491f-a4f0-52b2806159d6" alt=![1000927156]>
-   <p align="center">
-      THIS CANT BE FR "X is everywhere" MEANT LITERAL someone already called out my X looks like Colonel Sanders THIS JUST MADE IT WORSE PMOO its so funny tho🙏
-   <p align="center">
-      <img width="500" src="https://github.com/user-attachments/assets/2d400fab-d518-45a7-b0ef-ebd2c12f9f75" alt= ![Screenshot_4]>
-         <p align="center">
-      GIVE ME MORE OF THEM NOW
-        <p align="center">
-            <img width="300" src="https://github.com/user-attachments/assets/a2219262-9c83-4699-8e76-4dc29b3a1729" alt=![Screenshot_5]> <img width="300" src="https://github.com/user-attachments/assets/8d4c9c30-46fa-4616-af09-3a284ced0382" alt=![GpRPIombYAMlphj]>
-<p align="center">
-   THESE THREE ARE ALWAYS WINNING X and Queen havent even appeared yet and they are in the lead 
    <p align="center">
 <video src="https://github.com/user-attachments/assets/ea81b5bd-384f-4dc8-b7d7-ca3a928a3a11" width=100 height=100/>
   <p align="center">
