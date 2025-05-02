@@ -1,6 +1,6 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=PromiseEverlasting&color=c56161&style=for-the-badge&label=𝕏)
 <p align="center">
-      successful brainwashed my friends into tbhx 😈😈
+       <img width="200" src="https://github.com/user-attachments/assets/e8c1f7d5-87d9-4448-a2dc-a425e591eb1c" alt=![pony-town-X-sit-blinking-name-4x]>
    <p align="center">
 <video src="https://github.com/user-attachments/assets/ea81b5bd-384f-4dc8-b7d7-ca3a928a3a11" width=100 height=100/>
   <p align="center">
