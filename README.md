@@ -2,7 +2,7 @@
       <p align="center">
      QUEENX SHIPPERS ARE WINNING 
             <p align="center">
-<img width="300" src="https://github.com/user-attachments/assets/6fdbe3dc-afcd-4c9d-ba04-064dbd6d08dc" alt=![Gs4v5ecW8AEVxxF]>
+<img width="700" src="https://github.com/user-attachments/assets/6fdbe3dc-afcd-4c9d-ba04-064dbd6d08dc" alt=![Gs4v5ecW8AEVxxF]>
 
 
 
