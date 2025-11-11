@@ -45,7 +45,7 @@ these people gave me energy and made my boring life a fun one. I didn’t stress
                          HUHUHU THANK YOU SO SO MUCH REX I LOVE YOUR CHIIWARA AND THAT LITTLE VENTI 
                          <p align="center">
                           <img width="400" alt="Screenshot_38" src="https://github.com/user-attachments/assets/ef2a59ed-750a-4e44-9df2-de06fe9ed9dc" />
-<img width="500" alt="Screenshot_39" src="https://github.com/user-attachments/assets/7c9875ad-6060-445a-b798-e3295fe07772" />
+<img width="300" alt="Screenshot_39" src="https://github.com/user-attachments/assets/7c9875ad-6060-445a-b798-e3295fe07772" />
                             <p align="center">
                              THANK YOU SO MUCH KYUU MAY MANY YEARS COME !!!!!!!!!!
                                   <p align="center">
