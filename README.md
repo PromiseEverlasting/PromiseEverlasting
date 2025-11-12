@@ -98,7 +98,7 @@ these people gave me energy and made my boring life a fun one. I didn’t stress
                               <p align="center">
                                HUHUHU THANK YOU DWAYNE AND AOKI I CANT THANK ENOUGH fries and jellish its a best weird combo THEY HAVE THE ALMOST SAME COLOR PALLET AS MAEL AND ARTHIA HAHAHA 
                               <p align="center">
-                        <img width="500" src="https://github.com/user-attachments/assets/84ff0f92-9138-4791-a1ad-d8aac1a0a767)"  alt=![1000947719]>
+                        <img width="500" src="https://github.com/user-attachments/assets/84ff0f92-9138-4791-a1ad-d8aac1a0a767"  alt=![1000947719]>
               <p align="center">
                  THOSE PEOPLE WHO GREETED ME ON PONYTOWN JUST KNOW HOW MUCH YOU MADE MY DAY MORE++ more than 30+ people greeted me including those who greeted me in tiktok they matter to me I CANT REALLY PUT ALL OF IT HERE
            <p align="center">
