@@ -1,5 +1,7 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=PromiseEverlasting&color=ffbaba&style=for-the-badge&label=(ˉ﹃ˉ))
  <p align="center">
+  My Favorite Chapter Of My Life 
+ <p align="center">
 November 12 2025 12:00am
   <p align="left">
 Today is a big day my 18th birthday, officially stepping into adulthood feels unrealistic. I guess this also means more responsibilities… like paying taxes and making more serious decisions about life. but I wanted to take a moment to write down what’s really in my heart  reflecting on the years that have shaped me.
