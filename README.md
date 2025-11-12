@@ -86,10 +86,10 @@ these people gave me energy and made my boring life a fun one. I didn’t stress
          <img width="500" src="https://github.com/user-attachments/assets/46392062-9f2a-43e9-85a2-20bdc3dc7ffc" alt=![1000947525]>
             <p align="center">
              HAHAH THANK YOU DWAYNEEE THIS IS SO FUNNY
-                <p align="center">
-                 THOSE PEOPLE WHO GREETED ME ON PONYTOWN JUST KNOW HOW MUCH YOU MADE MY DAY MORE++
             <p align="center">
              <video src="https://github.com/user-attachments/assets/fdb2daf2-d795-417f-9358-3b7325ce8532">
+                              <p align="center">
+                 THOSE PEOPLE WHO GREETED ME ON PONYTOWN JUST KNOW HOW MUCH YOU MADE MY DAY MORE++
            <p align="center">
             <img width="321" src="https://github.com/user-attachments/assets/5f62dda2-74ff-4747-8868-9cf23087bce0" alt=![pony-town-🍓⭐ , ME !! Chii -sit-blinking-name-toy360-4x]>
        <p align="center">
