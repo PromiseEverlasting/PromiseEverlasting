@@ -2,7 +2,7 @@
  <p align="center">
   My Favorite Chapters Of My Life 
   <p align="center">
-   Loading arts and Gifts!! a bit busy with celebration 
+  Overwhelming amount of love to others is my greatest gift
  <p align="center">
 November 12 2025 12:00am
   <p align="left">
@@ -41,17 +41,27 @@ Angel, I sometimes see you as my little sister (when I'm your aunty)  You’re s
 Artemis, my child you always check up on me every day. Even a single “helow” or “how are you?” makes my day a little better, knowing someone truly cares about me whether I’m happy or not. Honestly, it should be the other way around I should be the one checking up on you most of the time. But I promise to myself, whenever I’m not too busy, I’ll say hello to you too. It’s really become a habit now  there’s not a single day that goes by without you greeting me. You always make me feel special being your mother. I’m here for you always, and I know you’re here for me too.
                        <p align="left">   
 these people gave me energy and made my boring life a fun one. I didn’t stress myself too much because I knew one of you would always be willing to share my thoughts, whether I was happy or not. Turning 18 for me means realizing my past and all the people who were a part of it. I’m having a bit of a relapse with all these memories as I write this I wouldn’t be in this position if it weren’t for you all I have many friends and supporters, and I’m not expecting more. I only wish for true love and support from one another, no matter how close or far we are. And to those who I haven’t mentioned by name you still count. You’ve supported me in ways you might not even realize, and just know this you always make my day.My day has just began.
+                            <p align="center">
+                             Gen cant express how im so greatful to have you as my friend as a brother to me and a family ilysm /pp art by dwayne but gifted by aoki they are so cute....
+                         <p align="center">  
+                          <img width="700" alt="Screenshot_48" src="https://github.com/user-attachments/assets/78b5eceb-9d77-4ac4-affb-1f96179022e9" />
                         <p align="center">
-                         THANK YOU SOO MUCH JOSHUA AHDIAHIUH I FREAKING LOVE ITTT ODMGOGGG I CANT MOVE ON FROM YOUR GIFT ITS LIKE VENTHIA GENUINELY SAID HAPPY BIRTHDAY TO ME HAHASDH THEY ARE SO PRETTY
+                         THANK YOU SOO MUCH JOSHUA AHDIAHIUH I FREAKING LOVE ITTT ODMGOGGG I CANT MOVE ON FROM YOUR GIFT ITS LIKE VENTHIA GENUINELY SAID HAPPY BIRTHDAY TO ME HAHASDH
                              <p align="center">
-                         <img width="540" alt="Screenshot_37" src="https://github.com/user-attachments/assets/3990af88-9aad-4965-a505-05d367092e09" />
+                         <img width="540" alt="Screenshot_37" src="https://github.com/user-attachments/assets/3990af88-9aad-4965-a505-05d367092e09" />  <img width="400" alt="Screenshot_49" src="https://github.com/user-attachments/assets/ce0da5bf-ced2-4747-b9d6-19d242fafbe3" />
                                   <p align="center">
                          HUHUHU THANK YOU SO SO MUCH REX I LOVE YOUR CHIIWARA AND THAT LITTLE VENTI 
                          <p align="center">
                           <img width="400" alt="Screenshot_38" src="https://github.com/user-attachments/assets/ef2a59ed-750a-4e44-9df2-de06fe9ed9dc" />
-<img width="300" alt="Screenshot_39" src="https://github.com/user-attachments/assets/7c9875ad-6060-445a-b798-e3295fe07772" />
+<img width="400" alt="Screenshot_39" src="https://github.com/user-attachments/assets/7c9875ad-6060-445a-b798-e3295fe07772" />
                             <p align="center">
-                             THANK YOU SO MUCH KYUU MAY MANY YEARS COME !!!!!!!!!!
+                         HSHI AND ARTHIA COLLAB ON MY BIRTHDAY?!?!?! OMGGG THA NK YOU SO MUCH VIII HUUHU 
+                               <p align="center">
+                                <img width="400" alt="Screenshot_47" src="https://github.com/user-attachments/assets/734ed38e-4d2e-48ac-a970-00a360db9cc8" />
+         <img width="300" alt="Screenshot_46" src="https://github.com/user-attachments/assets/e570d477-9c22-4d6f-b498-d832493e7d9c" />
+<img width="300" alt="Screenshot_45" src="https://github.com/user-attachments/assets/f692fd4e-41d6-41ef-afac-ed9b7b5e938d" />
+    <p align="center">
+   THANK YOU SO MUCH KYUU MAY MANY YEARS COME !!!!!!!!!!
                                   <p align="center">
                              <img width="500" alt="Screenshot_40" src="https://github.com/user-attachments/assets/848eab35-6f15-4db1-aa1f-bb91b658e6fa" />
       <p align="center">
