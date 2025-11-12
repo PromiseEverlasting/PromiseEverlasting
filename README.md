@@ -1,6 +1,8 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=PromiseEverlasting&color=ffbaba&style=for-the-badge&label=(ˉ﹃ˉ))
  <p align="center">
   My Favorite Chapters Of My Life 
+  <p align="center">
+   Loading arts and Gifts!! a bit busy with celebration 
  <p align="center">
 November 12 2025 12:00am
   <p align="left">
