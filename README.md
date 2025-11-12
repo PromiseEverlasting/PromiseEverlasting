@@ -88,7 +88,11 @@ these people gave me energy and made my boring life a fun one. I didn’t stress
              HAHAH THANK YOU DWAYNEEE THIS IS SO FUNNY
             <p align="center">
              <video src="https://github.com/user-attachments/assets/fdb2daf2-d795-417f-9358-3b7325ce8532">
-                              <p align="center">
+                           <p align="center">
+                            THANK YOU SOO MUCH MIMI I LOVE ITTTTTT SHES SO PRETYY 
+                             <p align="center">
+              <img width="500" src="https://github.com/user-attachments/assets/98a0bf04-2d94-4242-9490-1ccb4e147faf" alt=![1000947676]>
+              <p align="center">
                  THOSE PEOPLE WHO GREETED ME ON PONYTOWN JUST KNOW HOW MUCH YOU MADE MY DAY MORE++
            <p align="center">
             <img width="321" src="https://github.com/user-attachments/assets/5f62dda2-74ff-4747-8868-9cf23087bce0" alt=![pony-town-🍓⭐ , ME !! Chii -sit-blinking-name-toy360-4x]>
