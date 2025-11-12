@@ -62,9 +62,32 @@ these people gave me energy and made my boring life a fun one. I didn’t stress
 <img width="300" alt="Screenshot_45" src="https://github.com/user-attachments/assets/f692fd4e-41d6-41ef-afac-ed9b7b5e938d" />
     <p align="center">
    THANK YOU SO MUCH KYUU MAY MANY YEARS COME !!!!!!!!!!
-                                  <p align="center">
                              <img width="500" alt="Screenshot_40" src="https://github.com/user-attachments/assets/848eab35-6f15-4db1-aa1f-bb91b658e6fa" />
       <p align="center">
+       KEIRA HUHUHUHU 
+       <p align="center">
+ <img width="500"  src="https://github.com/user-attachments/assets/08b12a2b-0f5b-4fb8-99db-919d72d6c231" alt=![1000947435]>
+         <img width="500"  src="https://github.com/user-attachments/assets/acf63cbe-3bf3-4fbf-9577-2ba7db84ebc6" alt=![1000947707]>
+        <p align="center">
+         KAKAIYAK TALAGA KAYO HAHAH MY CHILDDD
+         <p align="center">
+          <img width="500"  src="https://github.com/user-attachments/assets/554a94e7-e72a-4dc5-bbd8-01ee2a6b89e9" alt= ![1000947711]>
+          <img width="500"  src="https://github.com/user-attachments/assets/29adf980-2980-47a2-a39b-416688821b18" alt=![1000947709]>
+          <p align="center">
+           I LOVE YOU SO MUCH MIKO FOR EVERYTHING/P
+          <p align="center">
+           <img width="500"  src="https://github.com/user-attachments/assets/f92e192e-fc36-47c0-b9e1-a480f80013a7" alt=![1000947694]>
+         <img width="500"  src="https://github.com/user-attachments/assets/486f8839-22ac-41b5-b74d-be69c2216133"  alt=![1000947692]>
+           <p align="center">
+            THANK YOU SO MUCH RIRI
+           <p align="center">
+            <img width="500"  src="https://github.com/user-attachments/assets/d822e78b-108f-481c-bf50-a171b50cc441 alt=![1000947527]>
+        <img width="500"  src="https://github.com/user-attachments/assets/5e6cb81c-d7c9-4a10-95ea-db147be21750" alt=![1000947525]>
+            <p align="center">
+             HAHAH THANK UOU DWAYNEEE THIS IS SO FUNNY
+            <p align="center">
+             <video src="https://github.com/user-attachments/assets/fdb2daf2-d795-417f-9358-3b7325ce8532">
+           <p align="center">
             <img width="321" src="https://github.com/user-attachments/assets/5f62dda2-74ff-4747-8868-9cf23087bce0" alt=![pony-town-🍓⭐ , ME !! Chii -sit-blinking-name-toy360-4x]>
        <p align="center">
 <img width="600" src="https://i.ibb.co/39z4tjvk/ae6458218e2efa4559ad8215460cadda-1.webp">
