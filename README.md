@@ -62,6 +62,7 @@ these people gave me energy and made my boring life a fun one. I didn’t stress
 <img width="300" alt="Screenshot_45" src="https://github.com/user-attachments/assets/f692fd4e-41d6-41ef-afac-ed9b7b5e938d" />
     <p align="center">
    THANK YOU SO MUCH KYUU MAY MANY YEARS COME !!!!!!!!!!
+         <p align="center">
                              <img width="500" alt="Screenshot_40" src="https://github.com/user-attachments/assets/848eab35-6f15-4db1-aa1f-bb91b658e6fa" />
       <p align="center">
        KEIRA HUHUHUHU 
