@@ -40,7 +40,9 @@ Angel, I sometimes see you as my little sister (when I'm your aunty)  You’re s
                        <p align="left">
 Artemis, my child you always check up on me every day. Even a single “helow” or “how are you?” makes my day a little better, knowing someone truly cares about me whether I’m happy or not. Honestly, it should be the other way around I should be the one checking up on you most of the time. But I promise to myself, whenever I’m not too busy, I’ll say hello to you too. It’s really become a habit now  there’s not a single day that goes by without you greeting me. You always make me feel special being your mother. I’m here for you always, and I know you’re here for me too.
                        <p align="left">   
-these people gave me energy and made my boring life a fun one. I didn’t stress myself too much because I knew one of you would always be willing to share my thoughts, whether I was happy or not. Turning 18 for me means realizing my past and all the people who were a part of it. I’m having a bit of a relapse with all these memories as I write this I wouldn’t be in this position if it weren’t for you all I have many friends and supporters, and I’m not expecting more. I only wish for true love and support from one another, no matter how close or far we are. And to those who I haven’t mentioned by name you still count. You’ve supported me in ways you might not even realize, and just know this you always make my day.My day has just began.
+these people gave me energy and made my boring life a fun one. I didn’t stress myself too much because I knew one of you would always be willing to share my thoughts, whether I was happy or not. Turning 18 for me means realizing my past and all the people who were a part of it. I’m having a bit of a relapse with all these memories as I write this I wouldn’t be in this position if it weren’t for you all I have many friends and supporters, and I’m not expecting more. I only wish for true love and support from one another, no matter how close or far we are. And to those who I haven’t mentioned by name you still count. You’ve supported me in ways you might not even realize, and just know this you always make my day My day has just began.
+                        <p align="center">
+                         PLEASEEE LOOK THROUGH THE END!!
                             <p align="center">
                              Gen cant express how im so greatful to have you as my friend as a brother to me and a family ilysm /pp art by dwayne but gifted by aoki they are so cute....
                          <p align="center">  
@@ -92,8 +94,13 @@ these people gave me energy and made my boring life a fun one. I didn’t stress
                             THANK YOU SOO MUCH MIMI I LOVE ITTTTTT SHES SO PRETYY 
                              <p align="center">
               <img width="500" src="https://github.com/user-attachments/assets/98a0bf04-2d94-4242-9490-1ccb4e147faf" alt=![1000947676]>
+                              <img width="500" src="https://github.com/user-attachments/assets/3e60e485-3f37-43f8-a062-2823a3e05f70" alt=![1000947720]>
+                              <p align="center">
+                               HUHUHU THANK YOU DWAYNE AND AOKI I CANT THANK ENOUGH fries and jellish its a best weird combo THEY HAVE THE ALMOST SAME COLOR PALLET AS MAEL AND ARTHIA HAHAHA 
+                              <p align="center">
+                        <img width="500" src="https://github.com/user-attachments/assets/84ff0f92-9138-4791-a1ad-d8aac1a0a767)"  alt=![1000947719]>
               <p align="center">
-                 THOSE PEOPLE WHO GREETED ME ON PONYTOWN JUST KNOW HOW MUCH YOU MADE MY DAY MORE++
+                 THOSE PEOPLE WHO GREETED ME ON PONYTOWN JUST KNOW HOW MUCH YOU MADE MY DAY MORE++ more than 30+ people greeted me including those who greeted me in tiktok they matter to me I CANT REALLY PUT ALL OF IT HERE
            <p align="center">
             <img width="321" src="https://github.com/user-attachments/assets/5f62dda2-74ff-4747-8868-9cf23087bce0" alt=![pony-town-🍓⭐ , ME !! Chii -sit-blinking-name-toy360-4x]>
        <p align="center">
