@@ -69,7 +69,7 @@ these people gave me energy and made my boring life a fun one. I didn’t stress
  <img width="600"  src="https://github.com/user-attachments/assets/08b12a2b-0f5b-4fb8-99db-919d72d6c231" alt=![1000947435]>
          <img width="500"  src="https://github.com/user-attachments/assets/acf63cbe-3bf3-4fbf-9577-2ba7db84ebc6" alt=![1000947707]>
         <p align="center">
-         KAKAIYAK TALAGA KAYO HAHAH MY CHILDDD
+         IM CRYING SO MUCH THANK YOU MY CHILDDD
          <p align="center">
             <img width="500"  src="https://github.com/user-attachments/assets/29adf980-2980-47a2-a39b-416688821b18" alt=![1000947709]>
           <img width="500"  src="https://github.com/user-attachments/assets/554a94e7-e72a-4dc5-bbd8-01ee2a6b89e9" alt= ![1000947711]>
@@ -81,9 +81,10 @@ these people gave me energy and made my boring life a fun one. I didn’t stress
            <p align="center">
             THANK YOU SO MUCH RIRI
            <p align="center">
-            <img width="500"  src="https://github.com/user-attachments/assets/d822e78b-108f-481c-bf50-a171b50cc441 alt=![1000947527]>
+            <img width="500" src="https://github.com/user-attachments/assets/e297e628-7043-48ac-ad37-8083ce9f145f" alt=![1000947527]>
+         <img width="500" src="https://github.com/user-attachments/assets/46392062-9f2a-43e9-85a2-20bdc3dc7ffc" alt=![1000947525]>
             <p align="center">
-             HAHAH THANK UOU DWAYNEEE THIS IS SO FUNNY
+             HAHAH THANK YOU DWAYNEEE THIS IS SO FUNNY
             <p align="center">
              <video src="https://github.com/user-attachments/assets/fdb2daf2-d795-417f-9358-3b7325ce8532">
            <p align="center">
