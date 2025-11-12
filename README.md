@@ -2,7 +2,7 @@
  <p align="center">
   My Favorite Chapters Of My Life 
   <p align="center">
-  Overwhelming amount of love to others is my greatest gift
+  Overwhelming amount of love to others is the greatest gift
  <p align="center">
 November 12 2025 12:00am
   <p align="left">
