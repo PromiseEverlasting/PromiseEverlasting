@@ -85,7 +85,7 @@ these people gave me energy and made my boring life a fun one. I didn’t stress
             <img width="500" src="https://github.com/user-attachments/assets/e297e628-7043-48ac-ad37-8083ce9f145f" alt=![1000947527]>
          <img width="500" src="https://github.com/user-attachments/assets/46392062-9f2a-43e9-85a2-20bdc3dc7ffc" alt=![1000947525]>
             <p align="center">
-             HAHAH THANK YOU DWAYNEEE THIS IS SO FUNNY
+             HAHAH THANK YOU DWAYNEEE THIS IS SO FUNNY MAEL AND VENTI 😭😭
             <p align="center">
              <video src="https://github.com/user-attachments/assets/fdb2daf2-d795-417f-9358-3b7325ce8532">
                            <p align="center">
