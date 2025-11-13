@@ -99,7 +99,11 @@ these people gave me energy and made my boring life a fun one. I didn’t stress
                                HUHUHU THANK YOU DWAYNE AND AOKI I CANT THANK ENOUGH fries and jellish its a best weird combo THEY HAVE THE ALMOST SAME COLOR PALLET AS MAEL AND ARTHIA HAHAHA 
                               <p align="center">
                         <img width="500" src="https://github.com/user-attachments/assets/84ff0f92-9138-4791-a1ad-d8aac1a0a767"  alt=![1000947719]>
+                                <p align="center">
+                                 CHIIWARA IS GETTING MUCH LOVE THANK YOUUU
               <p align="center">
+<img width="450" alt="Screenshot_51" src="https://github.com/user-attachments/assets/3bce3975-99c5-4dc3-ad8f-9db6bd3db383" />
+                <p align="center">
                  THOSE PEOPLE WHO GREETED ME ON PONYTOWN JUST KNOW HOW MUCH YOU MADE MY DAY MORE++ more than 30+ people greeted me including those who greeted me in tiktok they matter to me I CANT REALLY PUT ALL OF IT HERE
            <p align="center">
             <img width="321" src="https://github.com/user-attachments/assets/5f62dda2-74ff-4747-8868-9cf23087bce0" alt=![pony-town-🍓⭐ , ME !! Chii -sit-blinking-name-toy360-4x]>
