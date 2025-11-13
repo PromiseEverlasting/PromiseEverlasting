@@ -2,7 +2,7 @@
  <p align="center">
   My Favorite Chapters Of My Life 
    <p align="center">
-       <img width="400" <img width="2362" height="2411" alt="1000000801" src="https://github.com/user-attachments/assets/633e8eb7-1a28-4937-a065-01f84f0f642f" />
+       <img width="600" alt="1000000803" src="https://github.com/user-attachments/assets/1bdbfece-570a-407d-8b2b-df2c266f26a0" />
   <p align="center">
   Overwhelming amount of love to others is the greatest gift
  <p align="center">
