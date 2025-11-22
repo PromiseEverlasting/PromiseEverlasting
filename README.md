@@ -1,5 +1,7 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=PromiseEverlasting&color=ffbaba&style=for-the-badge&label=(ˉ﹃ˉ))
  <p align="center">
+  <video src="https://github.com/user-attachments/assets/86a88cc3-eb29-489e-8629-abb4434d5027" width=100 height=100/>
+ <p align="center">
   My Favorite Chapters Of My Life 
    <p align="center">
        <img width="400" alt="1000000803" src="https://github.com/user-attachments/assets/1bdbfece-570a-407d-8b2b-df2c266f26a0" />
