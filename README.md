@@ -127,22 +127,3 @@ these people gave me energy and made my boring life a fun one. I didn’t stress
 <img width="600" src="https://i.ibb.co/39z4tjvk/ae6458218e2efa4559ad8215460cadda-1.webp">
     <p align="center">
  My art w/ friends i love my friends sm :> 
-  <p align="center">
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
