@@ -1,5 +1,7 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=PromiseEverlasting&color=ffc3ca&style=for-the-badge&label=⪩⪨)
-<p align="center">
+ <p align="center">
+https://rentry.co/shinhee-n-luc-callout
+ <p align="center">
  I LOVE THIS HELPPP
  <p align="center"> 
  <video src="https://github.com/user-attachments/assets/9d7fe7cf-6221-4b12-b522-cd178491e2a8">
