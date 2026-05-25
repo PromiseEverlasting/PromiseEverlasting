@@ -1,5 +1,7 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=PromiseEverlasting&color=ffc3ca&style=for-the-badge&label=⪩⪨)
  <p align="center"> 
+  <img width="300" alt="Screenshot_2026-05-24_150328" src="https://github.com/user-attachments/assets/003e1c15-17b8-42f2-bc1a-94516d44e53e" />
+ <p align="center"> 
  <video src="https://github.com/user-attachments/assets/9d7fe7cf-6221-4b12-b522-cd178491e2a8">
  <p align="center">
   Art by Seren Dipity
