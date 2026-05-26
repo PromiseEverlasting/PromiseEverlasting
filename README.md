@@ -124,6 +124,6 @@ these people gave me energy and made my boring life a fun one. I didn’t stress
            <p align="center">
             <img width="321" src="https://github.com/user-attachments/assets/5f62dda2-74ff-4747-8868-9cf23087bce0" alt=![pony-town-🍓⭐ , ME !! Chii -sit-blinking-name-toy360-4x]>
        <p align="center">
-<img width="600" src="https://i.ibb.co/39z4tjvk/ae6458218e2efa4559ad8215460cadda-1.webp">
+<img width="627" height="881" alt="68747470733a2f2f692e6962622e636f2f33397a34746a766b2f61653634353832313865326566613435353961643832313534363063616464612d312e77656270" src="https://github.com/user-attachments/assets/d8630ffa-fa7d-4e5a-8e3a-ccd339d02823" />
     <p align="center">
  My art w/ friends i love my friends sm :> 
