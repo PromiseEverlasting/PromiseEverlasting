@@ -17,14 +17,10 @@ ART BY VETHER I LOVE MY CAMMY !!!
    Chiiwara (Chii) and Himiko (Miko) Miko's 17th Birthday :33
  <p align="center">
    <img width="400" src="https://github.com/user-attachments/assets/9dcffcd8-7c0d-48a5-9386-4941b9df1155" alt=![Untitled140_20251227200043]>
-   <p align="center">
-      <img width="200" alt="pony-town-I hate having money 😂😂-sit-blinking-padded-4x" src="https://github.com/user-attachments/assets/c18f16a2-3c37-4994-b0ee-81795ca33827">
  <p align="center">
   My Favorite Chapters Of My Life 
    <p align="center">
        <img width="400" alt="1000000803" src="https://github.com/user-attachments/assets/1bdbfece-570a-407d-8b2b-df2c266f26a0" />
-  <p align="center">
-  Overwhelming amount of love to others is the greatest gift
  <p align="center">
 November 12 2025 12:00am
   <p align="left">
