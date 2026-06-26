@@ -2,9 +2,9 @@
 <p align="center">
  ART BY VETHER AND HIS FRIEND 👀👀 IM OBSESSED (ill srsly organize my github soon)
 <p align="center"> 
- <img width="758" height="569" alt="1cd4bcfe-51cb-46df-a30a-bd3afba2e438 (1)" src="https://github.com/user-attachments/assets/9ebf682f-a3a4-4a94-8b24-da5804615133" />
+ <img width="600" alt="1cd4bcfe-51cb-46df-a30a-bd3afba2e438 (1)" src="https://github.com/user-attachments/assets/9ebf682f-a3a4-4a94-8b24-da5804615133" />
 <p align="center"> 
- <img width="400" alt="Untitled324_20260529011614" src="https://github.com/user-attachments/assets/8eaa038b-7316-4058-af47-64cc3c018439" />
+ <img width="500" alt="Untitled324_20260529011614" src="https://github.com/user-attachments/assets/8eaa038b-7316-4058-af47-64cc3c018439" />
 <p align="center"> 
 ART BY VETHER I LOVE MY CAMMY !!!
  <p align="center"> 
