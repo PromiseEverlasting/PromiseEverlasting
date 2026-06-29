@@ -9,9 +9,6 @@
    Chiiwara (Chii) and Himiko (Miko) Miko's 17th Birthday :33
  <p align="center">
    <img width="400" src="https://github.com/user-attachments/assets/9dcffcd8-7c0d-48a5-9386-4941b9df1155" alt=![Untitled140_20251227200043]>
-  <p align="center">
-  <img width="500" alt="Untitled324_20260529011614" src="https://github.com/user-attachments/assets/8eaa038b-7316-4058-af47-64cc3c018439" />
-<p align="center"> 
 ART BY VETHER TYSMM!! 🥺🩷
  <p align="center">
   My Favorite Chapters Of My Life 
